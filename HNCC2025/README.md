@@ -7,24 +7,36 @@ Hội nghị Nhà Chung Cư 2025 là cơ hội quan trọng để cư dân lên 
 - Nếu chưa đăng ký hoặc có thay đổi, liên hệ ngay với BQL để cập nhật.  
 
 ## 2️⃣ Hiểu Rõ Các Vấn Đề Quan Trọng  
-- Nắm rõ các vấn đề đang tồn tại trong chung cư, bao gồm:  
-  - **Chi phí quản lý, bảo trì**  
-  - **Chất lượng dịch vụ của Ban Quản Lý (BQL) và Ban Quản Trị (BQT)**  
-  - **Tình trạng an ninh, vệ sinh, tiện ích chung**  
-  - **Các hợp đồng dịch vụ (bảo vệ, vệ sinh, bảo trì thang máy, cây xanh, v.v.)**  
-  - **Việc công khai tài chính & minh bạch trong quản lý chung cư**  
-
+Nắm rõ các vấn đề đang tồn tại trong chung cư, bao gồm:  
+  - **Chi phí quản lý, bảo trì**
+       * Các hạng mục chi tiêu trong quỹ vận hành và quỹ bảo trì có được sử dụng đúng mục đích hay không ? Dựa trên cơ sở pháp lý nào ?
+       * Các hạng mục này tăng / giảm theo các năm như thế nào? Đã có thông qua cư dân chưa ? Đã được sử dụng hiệu quả chưa?
+       * Tại sao tăng chi phí ? Chi phí tăng có tương xứng với chất lượng dịch vụ
+         
+  - **Chất lượng dịch vụ của Ban Quản Lý (BQL) và Ban Quản Trị (BQT)**
+       * Ban quản lý có giám sát tốt chất lượng dịch vụ ?
+       * Tình trạng an ninh, vệ sinh, tiện ích chung có được quản ly tốt
+       * Các nghĩa vụ trong hợp đồng dịch vụ (bảo vệ, vệ sinh, bảo trì thang máy, cây xanh, v.v.) có được duy trì tốt
+       * Có gửi báo cáo tháng đầy đủ , công khai chi tiết tài chính đầy đủ các tháng & minh bạch trong quản lý chung cư ( báo cáo cư dân các quyết định quan trọng hay tự động ký duyệt)
+       * Hiểu quyền và nghĩa vụ của BQL và BQT quy định trong pháp luật, quy chế tài chính, quy chế hoạt động của BQT và trong hợp đồng QLVH như thế nào 
+   - Đọc kỹ nội dung các báo cáo bao gồm
+      * báo cáo audit
+      * báo cáo hoạt động BQT
+      * nội dung thương thảo chi phí với oxygen, sommerset
+      * kiến nghị budget cho HNCC 2025
 ## 3️⃣ Tham Gia Bỏ Phiếu & Ủy Quyền  
-- Nếu không thể tham gia trực tiếp, hãy **ủy quyền cho người đáng tin cậy** để đảm bảo tiếng nói của mình được lắng nghe.  
-- Đọc kỹ danh sách ứng viên vào Ban Quản Trị mới (nếu có bầu cử) và đưa ra quyết định đúng đắn.  
+- Nếu không thể tham gia trực tiếp, hãy **ủy quyền cho người đáng tin cậy** để đảm bảo tiếng nói của mình được lắng nghe.
+- Đảm bảo phiếu bầu được
 
 ## 4️⃣ Chuẩn Bị Câu Hỏi & Kiến Nghị  
 - Nếu có ý kiến, khiếu nại hoặc đề xuất, hãy **chuẩn bị trước bằng văn bản** để trình bày rõ ràng tại hội nghị.  
-- Đảm bảo ý kiến của bạn có bằng chứng hoặc dữ liệu hỗ trợ.  
+- Đảm bảo ý kiến của bạn có bằng chứng hoặc dữ liệu hỗ trợ.
+- Gửi trước các câu hỏi cần đặt ra với Phường để đảm bảo quyền lợi cư dân không bị cản trở trong buổi họp
 
 ## 5️⃣ Giám Sát & Yêu Cầu Minh Bạch  
-- Đề xuất **công khai tài chính, hợp đồng và quyết định của BQT & BQL**.  
-- Kiểm tra lại các báo cáo tài chính, biên bản họp trước đó để xem có vấn đề cần làm rõ không.  
+- Đề xuất **công khai tài chính, hợp đồng và các quyết định của BQT & BQL trong suốt thời gian qua thông qua biên bản họp BQT **.  
+- Kiểm tra lại các báo cáo và biên bản họp trước đó để xem có vấn đề cần làm rõ không
+- Tham gia giám sát 
 
 ## 6️⃣ Tích Cực Trao Đổi & Kêu Gọi Cư Dân Cùng Hành Động  
 - Khuyến khích hàng xóm, cư dân khác tham gia để hội nghị có đủ số lượng hợp lệ.  
