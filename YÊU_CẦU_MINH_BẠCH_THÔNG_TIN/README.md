@@ -2,7 +2,7 @@ Sau nhiều tháng yêu cầu minh bạch thông tin và yêu cầu giải trìn
 Folder này sẽ dùng để log lại các đơn yêu cầu minh bạch thông tin của cư dân
 
 -----------------------------
-17/3/2925
+19/3/2925
 Cư dân  đã có buổi xuống làm việc với Ban Quản Lý để yêu cầu tiếp cận tài liệu. Sau trao đổi gần như tất cả các thông tin yêu cầu BQL CBRE không thễ cung cấp nếu không được phép của BQT. Do vậy cư dân đã gửi đơn yêu cầu tới đại điện BQL và BQT yêu cầu tạo điều kiện để tiếp cận thông tin
 Nội dung đơn như link
 
