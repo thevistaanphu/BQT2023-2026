@@ -13,9 +13,16 @@ Theo thông tin BQL trao đổi ngày 19/3/2025, như ghi nhận trong livestrea
     1/ Biên bản HNNCC đầu tiên và tất cả các biên bản HNNCC trước năm 2017 không còn giữ 
     2/Hồ sơ bàn giao chủ đầu tư Triết ( BQL CBRE) nhận được là bản scan Capital Land gửi lại, do Triết viết email chứ không phải bản gốc. Theo thông báo cac file gôc đã mất
 
-Biên bản HNNCC qua các thời kì và hồ sơ chủ đầu tư bàn giao là các tài liệu nền tảng của chung cư . Và đây là một tổn thất rất lớn khi gần như các biên bản HNNCC không còn hồ sơ gốc
-Ngoài ra còn một vấn đề các  cư dân nhắc lại vấn đề phải gửi báo cáo thu chi chi tiết của quỹ bảo trì và quỹ vận hành , kèm dấu mộc của Ban quản trị và ban quản lý  và chữ ký để xác thực báo cáo. 
+Biên bản HNNCC qua các thời kì và hồ sơ chủ đầu tư bàn giao là các tài liệu nền tảng của chung cư .  Đây là một tổn thất rất lớn khi gần như các biên bản HNNCC không còn hồ sơ gốc
+Ngoài ra còn một vấn đề các  cư dân nhắc lại vấn đề phải gửi báo cáo thu chi chi tiết của quỹ bảo trì và quỹ vận hành , kèm dấu mộc của Ban quản trị và ban quản lý  và chữ ký để xác thực báo cáo đã đọc
+
 Không thể thay thế những báo cáo thu chi hằng tháng có dấu mộc đỏ để thể hiện trách nhhiệm của Ban Quản Lý và Ban Quản Trị bằng một báo cáo nửa năm 1 lần của công ty "Dịch vụ tài chính và kiểm toán phía nam" - một công ty audit do Bann Quản Trị tự chọn để audit Ban Quản Trị 
-Lá đơn gửi tới BQL và BQT 
-    Ban Quản Lý CBRE của chung cư The Vista An Phú - Đại diện là ông Nguyễn Hoàng Minh Triết
-    Ban Quản Trị chung cư The Vista An Phú nhiệm kỳ 2023- 2026 - Đại diện là ông Nguyễn Xuân Phương
+
+Lá đơn được gửi tới BQL và BQT vơi các đại diện pháp nhân như sau:
+    * Ban Quản Lý CBRE của chung cư The Vista An Phú - Đại diện là ông Nguyễn Hoàng Minh Triết
+    * Ban Quản Trị chung cư The Vista An Phú nhiệm kỳ 2023- 2026 - Đại diện là ông Nguyễn Xuân Phương
+
+---------------------------------------
+22/3/2025
+
+Gửi đơn nhắc lại yêu cầu không ngăn chặn tiếp cận thông tin của cư dân đến BQT 
