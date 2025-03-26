@@ -1,10 +1,12 @@
 # 📢 Phản Hồi Về Phiên Mở Chào Giá Dịch Vụ Vệ Sinh
 
-Trước hết, tôi xin nói thẳng TÔI KHÔNG ĐỒNG TÌNH VỚI CÁCH LÀM VIỆC so sánh QUẢ QUÝT với QUẢ TÁO mà BQL và BQT đang làm. Và tôi cũng đã nhiều lần viết email vấn đề này cũng như đã tổng hợp ý kiến lại một lần nữa và nêu lên trong tháng 1 và cũng đã có ý kiến trước khi mở thầu
+Trước hết, tôi xin nói thẳng TÔI KHÔNG ĐỒNG TÌNH VỚI CÁCH SỬ DỤNG CHECKLIST so sánh QUẢ QUÝT với QUẢ TÁO mà BQL và BQT đang làm. Và tôi cũng đã nhiều lần viết email vấn đề này cũng như đã tổng hợp ý kiến lại một lần nữa và nêu lên trong tháng 1 và cũng đã có ý kiến trước khi mở thầu
 
 ![Untitled](https://github.com/user-attachments/assets/30385fb4-a0ca-4757-89ff-d94950d78ac1)
-![image](https://github.com/user-attachments/assets/6536c22a-f482-4e92-8b19-57edb7eef765)
 
+
+![image](https://github.com/user-attachments/assets/6536c22a-f482-4e92-8b19-57edb7eef765)
+Hình : phản hồi của tôi khi đọc checklist gửi cho cư dân
 Việc tôi tham gia mở chào giá không có nghĩa tôi xác minh phiên mở chào giá minh bạch. Đây là quyền lợi của cư dân và tôi đơn thuần thực hiện quyền lợi của cá nhân tôi. Các cư dân tham gia không đại diện cho ý kiến tập thể
 
 Dưới đây là một số góp ý về quá trình mở thầu mà tôi ghi nhận trong lúc mở thầu 
@@ -70,3 +72,8 @@ Tôi một lần nữa yêu cầu BQL và BQT xem xét lại vai trò và trách
 1. Có một hồ sơ bị loại vì BQL thông báo nộp trễ. Tuy nhiên khi tôi hỏi biên bản chứng minh các hồ sơ khác nộp đúng giờ được BQL trả lời chỉ có 1 nhà thầu duy nhất có biên bản này
 
 2. Mặc dù trong đơn chào giá yêu cầu các nhà thầu phải nộp tại tầng G trươc 5h chiều ngày 16/03/2025 nhưng gần như 5 nhà thầu còn lại đều gửi ở lễ tân dưới sảnh và không hề có một biên nhận gì để đối chiếu các nhà thầu này có nộp dúng thời gian không. Đây là lỗi trao đổi thông tin CBRE cần rút kinh nghiệm cho các lần sau
+
+3. Checklist gửi cho cư dân một lần nữa lại không khớp với checklist trong phòng họp. Tại sao sau khi CBRE thay một loạt nhân sự thhì lỗi văn thư và đánh máy vẫn liên tục xảy ra?
+
+![image](https://github.com/user-attachments/assets/f327af0f-410c-4ac0-9b12-19715f1cba7f)
+
