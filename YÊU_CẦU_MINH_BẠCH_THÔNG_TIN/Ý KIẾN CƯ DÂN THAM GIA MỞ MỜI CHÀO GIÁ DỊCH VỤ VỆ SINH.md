@@ -7,7 +7,9 @@ Trước hết, tôi xin nói thẳng TÔI KHÔNG ĐỒNG TÌNH VỚI CÁCH SỬ
 
 ![image](https://github.com/user-attachments/assets/6536c22a-f482-4e92-8b19-57edb7eef765)
 Hình : phản hồi của tôi khi đọc checklist gửi cho cư dân
-Việc tôi tham gia mở chào giá không có nghĩa tôi xác minh phiên mở chào giá minh bạch. Đây là quyền lợi của cư dân và tôi đơn thuần thực hiện quyền lợi của cá nhân tôi. Các cư dân tham gia không đại diện cho ý kiến tập thể
+
+
+Việc tôi tham gia mở chào giá không có nghĩa tôi xác minh phiên mở chào giá minh bạch. Tham gia góp ý và giám sát là quyền lợi của cư dân và tôi đơn thuần thực hiện quyền lợi của cá nhân tôi. Các cư dân tham gia không đại diện cho ý kiến tập thể
 
 Dưới đây là một số góp ý về quá trình mở thầu mà tôi ghi nhận trong lúc mở thầu 
 
