@@ -2,7 +2,8 @@
 
 Trước hết, tôi xin nói thẳng TÔI KHÔNG ĐỒNG TÌNH VỚI CÁCH SỬ DỤNG CHECKLIST so sánh QUẢ QUÝT với QUẢ TÁO mà BQL và BQT đang làm. Và tôi cũng đã nhiều lần viết email vấn đề này cũng như đã tổng hợp ý kiến lại một lần nữa và nêu lên trong tháng 1 và cũng đã có ý kiến trước khi mở thầu
 
-![Untitled](https://github.com/user-attachments/assets/30385fb4-a0ca-4757-89ff-d94950d78ac1)
+![image](https://github.com/user-attachments/assets/66159d8b-043e-46a6-a610-84569b19e5bb)
+
 
 
 ![image](https://github.com/user-attachments/assets/6536c22a-f482-4e92-8b19-57edb7eef765)
