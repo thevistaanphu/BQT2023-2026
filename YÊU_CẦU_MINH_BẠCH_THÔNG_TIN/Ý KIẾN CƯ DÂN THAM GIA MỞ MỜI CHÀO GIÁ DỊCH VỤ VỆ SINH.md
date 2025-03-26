@@ -1,4 +1,4 @@
-📢 Phản Hồi Về Phiên Mở Chào Giá Dịch Vụ Vệ Sinh
+# 📢 Phản Hồi Về Phiên Mở Chào Giá Dịch Vụ Vệ Sinh
 
 Trước hết, tôi xin nói thẳng TÔI KHÔNG ĐỒNG TÌNH VỚI CÁCH LÀM VIỆC so sánh QUẢ QUÝT với QUẢ TÁO mà BQL và BQT đang làm. Và tôi cũng đã nhiều lần viết email vấn đề này cũng như đã tổng hợp ý kiến lại một lần nữa và nêu lên trong tháng 1 và cũng đã có ý kiến trước khi mở thầu
 
@@ -8,7 +8,7 @@ Trước hết, tôi xin nói thẳng TÔI KHÔNG ĐỒNG TÌNH VỚI CÁCH LÀM
 Việc tôi tham gia mở chào giá không có nghĩa tôi xác minh phiên mở chào giá minh bạch. Đây là quyền lợi của cư dân và tôi đơn thuần thực hiện quyền lợi của cá nhân tôi. Các cư dân tham gia không đại diện cho ý kiến tập thể
 Ngoài ra dưới đây là một số góp ý về quá trình mở thầu mà tôi ghi nhận 
 
-1. 🔍  Tiêu chí chấm thầu không rõ ràng
+## I. 🔍  Tiêu chí chấm thầu không rõ ràng
 
 
 📂 1.1 Tiêu Chí Chấm Thầu Và Thư mời chào giá dịch vụ vệ sinh bị Khác Nhau
@@ -33,7 +33,7 @@ Tôi yêu cầu thông tin check list này dựa trên gì và các nhà thầu 
  -> Vì đây là đơn mở thầu tôi không đi sâu vào và chi dừng ở khía cạnh không có một yêu cầu hạng mục công việc chung được chhia sẻ rộng rãi trong thư mời chào giá cạnh tranh.
 
 
-2. 📊 Không có các tiêu chí kiên quyết,  và các trọng lượng của từng hạng mục  dẫn đến so sánh quả quýt và quả táo
+## II. 📊 Không có các tiêu chí kiên quyết,  và các trọng lượng của từng hạng mục  dẫn đến so sánh quả quýt và quả táo
 
 Như tôi đã nói rất nhiều lần trước đây không thể đánh đồng tất cả các tiêu chí đều nhau. Việc không có các tiêu chí kiên quyết ( thiếu là hồ sơ không duyệt, vd thiếu hợp đồng tài chính thì sẽ loại) dẫn đến buôi kiểm tra dài lê thê , không biết tập chung vào đâu , không minh bạch với cư dân và các đơn vị ban đầu là sẽ ký những gì . Ví dụ:
 
@@ -47,7 +47,7 @@ Như tôi đã nói rất nhiều lần trước đây không thể đánh đồ
 3. Các tiêu chí tài chính và kinh nghiệm thực tế phải so sánh tầm cỡ và quy mô ngang nhau . Không thể để một công ty lỗ vài tỷ được vào vòng trong cùng với một công ty lợi nhuận vài tỷ/ vài chục tỷ. Cũng như vậy không thể so một công ty lãi vài trăm triệu / năm vơ1i công ty lãi vài tỷ một ăm
    
 
-3. 🛠️ Phân Luồng Trách Nhiệm
+## III. 🛠️ Phân Luồng Trách Nhiệm
 
 Trách nhiệm của Ban Quản Trị cần thiết lập tiêu chí rõ ràng, minh bạch theo góp ý của cư dân
 Trách nhiệm của  BQL CBRE cần kiểm soát chất lượng dịch vụ theo tiêu chí đề ra và phải cam kết được chất lượng đúng theo tiêu chí. Hiện tại tiêu chí không rõ ràng và bản thân CBRE cũng không đóng vai trò như một bên tư vấn và góp ý, cũng như thiếu chuyên môn trong kiểm soát chất lượng
