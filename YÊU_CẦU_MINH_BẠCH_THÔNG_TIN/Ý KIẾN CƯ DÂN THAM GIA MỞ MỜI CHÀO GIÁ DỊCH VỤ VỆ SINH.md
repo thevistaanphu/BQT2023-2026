@@ -24,14 +24,14 @@ Trong thư mời chào giá dịch vụ vệ sinh Không hề có nội dung ph�
 
 ![Untitled-1](https://github.com/user-attachments/assets/b13dbfc4-40f1-465b-9dca-42ee418d906b)
 
-🔎 1.2 Không Bảo Đảm Các Nhà Thầu Nhận Cùng Nội Dung
+🔎 1.2 Không Bảo Đảm nội dung đồng nhất và theo quy trình
 
-Tất cả các nhà thầu hôm nay đều gửi một checklist các hạng mục công việc họ sẽ làm hằng ngày/ tuần / tháng. 
-
-Tôi yêu cầu thông tin check list này dựa trên gì và các nhà thầu có nhận được cùng một thông tin không. CBRE trả lời chỉ gửi cho từng nhà thầu tham gia khảo sát chứ không gửi chung trong đơn chào giá.
+Tất cả các nhà thầu hôm nay đều gửi một checklist các hạng mục công việc họ sẽ làm hằng ngày/ tuần / tháng.  Do không thấy checklist này trong file mời chào giá cạnh tranh tôi hỏi rõ thông tin check list này dựa trên gì và các nhà thầu có nhận được cùng một thông tin không. CBRE trả lời chỉ gửi cho từng nhà thầu tham gia khảo sát chứ không gửi chung trong đơn chào giá.
 
  -> Vì đây là đơn mở thầu tôi không đi sâu vào và chi dừng ở khía cạnh không có một yêu cầu hạng mục công việc chung được chhia sẻ rộng rãi trong thư mời chào giá cạnh tranh.
 
+
+Ngoài ra mặc dù trong đơn chào giá yêu cầu các nhà thầu phải nộp tại tầng G trươc 5h chiều ngày 16/03/2025 nhưng gần như 5 nhà thầu còn lại đều gửi ở lễ tân dưới sảnh và không hề có một biên nhận gì để đối chiếu các nhà thầu này có nộp dúng thời gian không. Đây là lỗi trao đổi thông tin CBRE cần rút kinh nghiệm cho các lần sau
 
 ## II. 📊 Không có các tiêu chí kiên quyết,  và các trọng lượng của từng hạng mục  dẫn đến so sánh quả quýt và quả táo
 
@@ -44,7 +44,7 @@ Như tôi đã nói rất nhiều lần trước đây không thể đánh đồ
 
 2. Không thể dùng một số tiêu chí nhỏ để tạo điều kiện những công ty nhỏ thắng thầu, ví dụ trước đây như trường hợp Bee Green trước đó đã bị cắt hợp đồng bởi một công ty no-name với chi phí đắt hơn vì lý do offer được thêm 3 bao đất/ tháng. Với tình trạng không có một checklist chung được gửi công khai thì không biết sẽ có xảy ra trường hợp một công ty nào đó được cộng điểm vì vài viên thuốc khủ mùi cộng thêm vào gói thầu
 
-3. Các tiêu chí tài chính và kinh nghiệm thực tế phải so sánh tầm cỡ và quy mô ngang nhau . Không thể để một công ty lỗ vài tỷ được vào vòng trong cùng với một công ty lợi nhuận vài tỷ/ vài chục tỷ. Cũng như vậy không thể so một công ty lãi vài trăm triệu / năm vơ1i công ty lãi vài tỷ một ăm
+3. Các tiêu chí tài chính và kinh nghiệm thực tế phải so sánh tầm cỡ và quy mô ngang nhau . Không thể để một công ty lỗ vài tỷ được vào vòng trong cùng với một công ty lợi nhuận vài tỷ/ vài chục tỷ. Cũng như vậy không thể so một công ty lãi vài trăm triệu / năm với công ty lãi vài tỷ một ăm
    
 
 ## III. 🛠️ Phân Luồng Trách Nhiệm
