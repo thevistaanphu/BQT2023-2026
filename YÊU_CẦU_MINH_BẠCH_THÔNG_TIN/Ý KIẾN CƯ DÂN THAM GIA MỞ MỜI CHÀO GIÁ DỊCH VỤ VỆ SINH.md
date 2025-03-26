@@ -51,7 +51,9 @@ Như tôi đã nói rất nhiều lần trước đây không thể đánh đồ
 
 Trách nhiệm của Ban Quản Trị là  thiết lập tiêu chí rõ ràng, minh bạch theo góp ý của cư dân
 
-Ban Quản Lý CBRE cần kiểm soát chất lượng dịch vụ theo tiêu chí đề ra và phải cam kết được chất lượng đúng theo tiêu chí. Hiện tại tiêu chí không rõ ràng và bản thân CBRE cũng không đóng vai trò như một bên tư vấn và góp ý, cũng như thiếu chuyên môn trong kiểm soát chất lượng
+Ban Quản Lý CBRE cần kiểm soát chất lượng dịch vụ theo tiêu chí đề ra và phải cam kết được chất lượng đúng theo tiêu chí. 
+
+Hiện tại tiêu chí thầu, tiêu chí và KPI đặt ra  không hiệu quả ( nếu hiệu quả thì cư dân đã không phàn nàn và lên tiếng hàng loạt) .Bản thân CBRE cũng không đóng vai trò như một bên tư vấn và góp ý, cũng như thiếu chuyên môn trong kiểm soát chất lượng
 
 Khi có vấn đề về chất lượng và phản ánh từ cư dân thì người đầu tiên Ban Quản Trị cần xem xét là PM của dự án và giám sát chất lượng. Như vậy nếu việc phân luồng trách nhiệm hoạt động tốt thì cư dân không cần phải quan tâm đơn vị nào thắng thầu. Rất tiếc hiện tại cả 2 luồng đều có sự trì trệ và đặc biệt luồng của BQL CBRE khi cư dân liên tục phàn nàn về việc giám sát chất lượng cũng như vai trò không rõ ràng của cô Trương Thị Mỹ Hiền
 
