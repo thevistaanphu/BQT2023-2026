@@ -6,7 +6,8 @@ Trước hết, tôi xin nói thẳng TÔI KHÔNG ĐỒNG TÌNH VỚI CÁCH LÀM
 ![image](https://github.com/user-attachments/assets/6536c22a-f482-4e92-8b19-57edb7eef765)
 
 Việc tôi tham gia mở chào giá không có nghĩa tôi xác minh phiên mở chào giá minh bạch. Đây là quyền lợi của cư dân và tôi đơn thuần thực hiện quyền lợi của cá nhân tôi. Các cư dân tham gia không đại diện cho ý kiến tập thể
-Ngoài ra dưới đây là một số góp ý về quá trình mở thầu mà tôi ghi nhận 
+
+Dưới đây là một số góp ý về quá trình mở thầu mà tôi ghi nhận trong lúc mở thầu 
 
 ## I. 🔍  Tiêu chí chấm thầu không rõ ràng
 
@@ -30,9 +31,6 @@ Tất cả các nhà thầu hôm nay đều gửi một checklist các hạng m�
 
  -> Vì đây là đơn mở thầu tôi không đi sâu vào và chi dừng ở khía cạnh không có một yêu cầu hạng mục công việc chung được chhia sẻ rộng rãi trong thư mời chào giá cạnh tranh.
 
-
-Ngoài ra mặc dù trong đơn chào giá yêu cầu các nhà thầu phải nộp tại tầng G trươc 5h chiều ngày 16/03/2025 nhưng gần như 5 nhà thầu còn lại đều gửi ở lễ tân dưới sảnh và không hề có một biên nhận gì để đối chiếu các nhà thầu này có nộp dúng thời gian không. Đây là lỗi trao đổi thông tin CBRE cần rút kinh nghiệm cho các lần sau
-
 ## II. 📊 Không có các tiêu chí kiên quyết,  và các trọng lượng của từng hạng mục  dẫn đến so sánh quả quýt và quả táo
 
 Như tôi đã nói rất nhiều lần trước đây không thể đánh đồng tất cả các tiêu chí đều nhau. Việc không có các tiêu chí kiên quyết ( thiếu là hồ sơ không duyệt, vd thiếu hợp đồng tài chính thì sẽ loại) dẫn đến buôi kiểm tra dài lê thê , không biết tập chung vào đâu , không minh bạch với cư dân và các đơn vị ban đầu là sẽ ký những gì . Ví dụ:
@@ -53,17 +51,22 @@ Trách nhiệm của Ban Quản Trị là  thiết lập tiêu chí rõ ràng, m
 
 Ban Quản Lý CBRE cần kiểm soát chất lượng dịch vụ theo tiêu chí đề ra và phải cam kết được chất lượng đúng theo tiêu chí. 
 
-Hiện tại tiêu chí thầu, tiêu chí và KPI đặt ra  không hiệu quả ( nếu hiệu quả thì cư dân đã không phàn nàn và lên tiếng hàng loạt) .Bản thân CBRE cũng không đóng vai trò như một bên tư vấn và góp ý, cũng như thiếu chuyên môn trong kiểm soát chất lượng
+Hiện tại tiêu chí thầu, tiêu chí và KPI đặt ra không hiệu quả (nếu hiệu quả thì cư dân đã không phàn nàn và lên tiếng hàng loạt) .Bản thân CBRE cũng không đóng vai trò như một bên tư vấn và góp ý, cũng như thiếu chuyên môn trong kiểm soát chất lượng
 
-Khi có vấn đề về chất lượng và phản ánh từ cư dân thì người đầu tiên Ban Quản Trị cần xem xét là PM của dự án và giám sát chất lượng. Như vậy nếu việc phân luồng trách nhiệm hoạt động tốt thì cư dân không cần phải quan tâm đơn vị nào thắng thầu. Rất tiếc hiện tại cả 2 luồng đều có sự trì trệ và đặc biệt luồng của BQL CBRE khi cư dân liên tục phàn nàn về việc giám sát chất lượng cũng như vai trò không rõ ràng của cô Trương Thị Mỹ Hiền
+Khi có vấn đề về chất lượng và phản ánh từ cư dân thì người đầu tiên cần chịu trách nhiệm là PM của dự án và giám sát chất lượng. Như vậy nếu việc phân luồng trách nhiệm hoạt động tốt thì cư dân không cần phải quan tâm đơn vị nào thắng thầu. Rất tiếc hiện tại cả 2 luồng đều có sự trì trệ và đặc biệt luồng của BQL CBRE khi cư dân liên tục phàn nàn về việc giám sát chất lượng cũng như vai trò không rõ ràng của cô Trương Thị Mỹ Hiền
 
 Trong tháng 11 cư dân đã phàn nàn về cô Hiền trong vị trí hỗ trợ chăm sóc khách hàng và sau đó được thông báo cô chuyển sang làm giám sát chất lượng. Rất nhiều cư dân liên tục phàn nàn về chât lượng của toàn dự án, từ vệ sinh, hồ bơi, phòng gym đến bảo vệ nhưng cô Hiền vẫn bình chân như vại và thậm chí còn trả treo lại cư dân. Khi đưa vấn đề này lên CBRE thì được trả lời còn đợi ý kiến Ban Quản Trị
 
 ![image](https://github.com/user-attachments/assets/3a18bcae-e747-4faa-85a9-17cd925326ab)
 
-
 Trong buổi họp hôm nay khi tôi có ý kiến về những thông tin sai lệch, và những vấn đề không thể được coi là thiếu thông tin thì cô Hiền tự ý đưa ra ý kiến trước cả PM dự án và BQT
+
+
 
 Tôi một lần nữa yêu cầu BQL và BQT xem xét lại vai trò và trách nhiệm cô Hiền có vai trò gì? Nếu là giám sát chất lượng thì tại sao lại có trách nhiệm tham gia mở thầu và có ý kiến? Tại sao cô Hiền liên tục được ưu ái đổi từ vị trí này sang vị trí khác?
 
+## IV. 😉 Những chuyện ruồi bu khác nhưng cần xem lại quy trình 
 
+1. Có một hồ sơ bị loại vì BQL thông báo nộp trễ. Tuy nhiên khi tôi hỏi biên bản chứng minh các hồ sơ khác nộp đúng giờ được BQL trả lời chỉ có 1 nhà thầu duy nhất có biên bản này
+
+2. Mặc dù trong đơn chào giá yêu cầu các nhà thầu phải nộp tại tầng G trươc 5h chiều ngày 16/03/2025 nhưng gần như 5 nhà thầu còn lại đều gửi ở lễ tân dưới sảnh và không hề có một biên nhận gì để đối chiếu các nhà thầu này có nộp dúng thời gian không. Đây là lỗi trao đổi thông tin CBRE cần rút kinh nghiệm cho các lần sau
