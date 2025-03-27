@@ -1,6 +1,6 @@
 # 📢 Phản Hồi Về Phiên Mở Chào Giá Dịch Vụ Vệ Sinh
 
-Trước hết, tôi xin nói thẳng TÔI KHÔNG ĐỒNG TÌNH VỚI CÁCH SỬ DỤNG CHECKLIST so sánh QUẢ QUÝT với QUẢ TÁO mà BQL và BQT đang làm. Việc tôi tham gia mở chào giá không có nghĩa tôi xác minh phiên mở chào giá minh bạch. Tham gia góp ý và giám sát là quyền lợi của cư dân và tôi đơn thuần thực hiện quyền lợi của cá nhân tôi. Các cư dân tham gia không đại diện cho ý kiến tập thể
+Trước hết, tôi xin nói trên cương vị cư dân TÔI KHÔNG ĐỒNG TÌNH VỚI CÁCH SỬ DỤNG CHECKLIST so sánh QUẢ QUÝT với QUẢ TÁO mà BQL và BQT đang làm. Việc tôi tham gia mở chào giá không có nghĩa tôi xác minh phiên mở chào giá minh bạch. Tham gia góp ý và giám sát là quyền lợi của cư dân và tôi đơn thuần thực hiện quyền lợi của cá nhân tôi. Các cư dân tham gia không đại diện cho ý kiến tập thể
 
 Dưới đây là một số góp ý về quá trình mở thầu mà tôi ghi nhận trong lúc mở thầu 
 
