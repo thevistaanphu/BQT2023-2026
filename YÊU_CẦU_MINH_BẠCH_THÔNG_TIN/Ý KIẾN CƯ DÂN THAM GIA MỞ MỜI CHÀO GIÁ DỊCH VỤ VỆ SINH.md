@@ -1,18 +1,6 @@
 # 📢 Phản Hồi Về Phiên Mở Chào Giá Dịch Vụ Vệ Sinh
 
-Trước hết, tôi xin nói thẳng TÔI KHÔNG ĐỒNG TÌNH VỚI CÁCH SỬ DỤNG CHECKLIST so sánh QUẢ QUÝT với QUẢ TÁO mà BQL và BQT đang làm. Và tôi cũng đã nhiều lần viết email vấn đề này cũng như đã tổng hợp ý kiến lại một lần nữa và nêu lên trong tháng 1 và cũng đã có ý kiến trước khi mở thầu
-
-
-![image](https://github.com/user-attachments/assets/b3fd91eb-b7bc-4af8-b391-aab78c1e7427)
-
-
-
-
-![image](https://github.com/user-attachments/assets/6536c22a-f482-4e92-8b19-57edb7eef765)
-Hình : phản hồi của tôi khi đọc checklist gửi cho cư dân
-
-
-Việc tôi tham gia mở chào giá không có nghĩa tôi xác minh phiên mở chào giá minh bạch. Tham gia góp ý và giám sát là quyền lợi của cư dân và tôi đơn thuần thực hiện quyền lợi của cá nhân tôi. Các cư dân tham gia không đại diện cho ý kiến tập thể
+Trước hết, tôi xin nói thẳng TÔI KHÔNG ĐỒNG TÌNH VỚI CÁCH SỬ DỤNG CHECKLIST so sánh QUẢ QUÝT với QUẢ TÁO mà BQL và BQT đang làm. Việc tôi tham gia mở chào giá không có nghĩa tôi xác minh phiên mở chào giá minh bạch. Tham gia góp ý và giám sát là quyền lợi của cư dân và tôi đơn thuần thực hiện quyền lợi của cá nhân tôi. Các cư dân tham gia không đại diện cho ý kiến tập thể
 
 Dưới đây là một số góp ý về quá trình mở thầu mà tôi ghi nhận trong lúc mở thầu 
 
@@ -81,4 +69,15 @@ Tôi một lần nữa yêu cầu BQL và BQT xem xét lại vai trò và trách
 3. Checklist gửi cho cư dân một lần nữa lại không khớp với checklist trong phòng họp. Tại sao sau khi CBRE thay một loạt nhân sự thhì lỗi văn thư và đánh máy vẫn liên tục xảy ra?
 
 ![image](https://github.com/user-attachments/assets/f327af0f-410c-4ac0-9b12-19715f1cba7f)
+
+4. Đây là hình ảnh nhiều tháng qua tôi đã yêu cầu minh bạch quy trình thầu. tôi cũng đã nhiều lần viết email vấn đề này cũng như đã tổng hợp ý kiến lại một lần nữa và nêu lên trong tháng 1 và cũng đã có ý kiến trước khi mở thầu
+
+![image](https://github.com/user-attachments/assets/b3fd91eb-b7bc-4af8-b391-aab78c1e7427)
+
+
+
+
+![image](https://github.com/user-attachments/assets/6536c22a-f482-4e92-8b19-57edb7eef765)
+Hình : phản hồi của tôi khi đọc checklist gửi cho cư dân
+
 
