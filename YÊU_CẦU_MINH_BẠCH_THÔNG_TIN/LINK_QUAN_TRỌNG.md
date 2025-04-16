@@ -1,6 +1,9 @@
 ## Nội dung đơn gửi lên chính quyền
 https://docs.google.com/document/d/1XJOs4PfZbAHWpLfRw92vXAdoY_xcXX0y1DEGbSCZIT0/edit?usp=sharing
 
+## File dan sách chữ ký
+
+https://docs.google.com/document/d/1XJOs4PfZbAHWpLfRw92vXAdoY_xcXX0y1DEGbSCZIT0/edit?usp=sharing
 
 ## FAQ
 Tổng hợp các câu hỏi tại sao cư dân cần làm đơn 
