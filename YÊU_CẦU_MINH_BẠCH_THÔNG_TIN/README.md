@@ -6,7 +6,9 @@ Sau Hội Nghị Nhà Chung Cư (‘HNNCC’) 2024, BQT liên tục có các đ�
 Đến ngày 15/04/2025, chúng tôi vẫn chưa nhận được phản hồi từ BQT cho phép tiếp cận thông tin và cung cấp các số liệu liên quan. Thêm vào đó, BQT liên tục có các hành vi cấm cư dân chia sẻ nội dung họp, ghi âm, và có các động thái khiêu khích và kích động cư dân. Do lo ngại các hành vi lạm quyền dẫn đến thất thoát cho quỹ Bảo Trì và quỹ Vận Hành và nghi ngờ có sự khuất tất, chúng tôi viết đơn như dưới đây để gửi lên các cấp chính quyền, thông qua cổng thông tin điện tử quốc gia, để cập nhập giải quyết. Chúng tôi mong muốn cư dân cùng ký đơn đồng thuận yêu cầu chính quyền và các bên liên quan cung cấp thông tin cần thiết và chấm dứt những hành vi ngăn chặn minh bạch thông tin
 
 Cư dân có thể tham khảo một số nội dung quy định của pháp luật về quỹ Bảo Trì và Quỹ Vận Hành 
-[[Hướng dẫn nguyên tắc và hạng mục sử dụng quỹ Bảo Trì](https://thuvienphapluat.vn/phap-luat/nhung-hang-muc-nao-duoc-su-dung-quy-bao-tri-cua-chung-cu-viec-bao-tri-nha-chung-cu-thuc-hien-theo-n-27075.html)] 
+- [Hướng dẫn nguyên tắc và hạng mục sử dụng quỹ Bảo Trì](https://thuvienphapluat.vn/phap-luat/nhung-hang-muc-nao-duoc-su-dung-quy-bao-tri-cua-chung-cu-viec-bao-tri-nha-chung-cu-thuc-hien-theo-n-27075.html)
+
+[- Phân biệt kinh phí quản lý và kinh phí bảo trì](https://soxaydung.hochiminhcity.gov.vn/web/vi/-/phan-biet-kinh-phi-quan-ly-van-hanh-va-kinh-phi-bao-tri)
 Phân biệt kinh phí quản lý và kinh phí bảo trì
 Hướng dẫn về phí quản lý nhà chung cư mới nhất
 Nghiêm cấm các hành vi sử dụng quỹ bảo trì cho công việc quản lý vận hành
