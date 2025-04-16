@@ -49,8 +49,8 @@ Lá đơn được gửi tới BQL và BQT vơi các đại diện pháp nhân n
     * Ban Quản Trị chung cư The Vista An Phú nhiệm kỳ 2023- 2026 - Đại diện là ông Trần Xuân Phương
 
 
-Live stream https://youtube.com/live/ltdG8IpYJZY?feature=share
-
+[Thu âm cuộc họp
+](https://youtube.com/live/ltdG8IpYJZY?feature=share)
 ---------------------------------------
 ### 22/3/2025
 
