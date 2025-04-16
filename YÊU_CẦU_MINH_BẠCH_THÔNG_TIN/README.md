@@ -23,7 +23,7 @@ Cư dân có thể tham khảo một số nội dung quy định của pháp lu�
 -----------------------------
 
 ## Hành trình đưa đơn yêu cầu cung cấp thông tin 
-19/3/2925
+### 19/3/2925
 Cư dân  đã có buổi xuống làm việc với Ban Quản Lý để yêu cầu tiếp cận tài liệu. Sau trao đổi gần như tất cả các thông tin yêu cầu BQL CBRE không thễ cung cấp nếu không được phép của BQT. Do vậy cư dân đã gửi đơn yêu cầu tới đại điện BQL và BQT yêu cầu tạo điều kiện để tiếp cận thông tin
 Nội dung đơn như link
 
@@ -47,12 +47,11 @@ Lá đơn được gửi tới BQL và BQT vơi các đại diện pháp nhân n
 Live stream https://youtube.com/live/ltdG8IpYJZY?feature=share
 
 ---------------------------------------
-22/3/2025
+### 22/3/2025
 
 Gửi đơn nhắc lại yêu cầu không ngăn chặn tiếp cận thông tin của cư dân đến BQT  
 
 https://github.com/thevistaanphu/BQT2023-2026/blob/main/Y%C3%8AU_C%E1%BA%A6U_MINH_B%E1%BA%A0CH_TH%C3%94NG_TIN/%C4%90%C6%A0N%20NH%E1%BA%AEC%20L%E1%BA%A0I%20Y%C3%8AU%20C%E1%BA%A6U%20TI%C3%8AP%20C%E1%BA%ACN%20T%C3%80I%20LI%E1%BB%86U_20250322_0001.pd
-
 Live stream: https://youtube.com/live/X0hUXIsVjWs?feature=share
 ----------------------
 29/3/2025
@@ -62,7 +61,7 @@ https://github.com/thevistaanphu/BQT2023-2026/blob/main/Y%C3%8AU_C%E1%BA%A6U_MIN
 
 Livestream https://youtube.com/live/hTFq9LmoivI?feature=share
 -------------------------
-5/4/2025
+### 5/4/2025
 
 Lập biên bản với BQL xác nhận các tài liệu chưa nhận được phản hồi 
 
