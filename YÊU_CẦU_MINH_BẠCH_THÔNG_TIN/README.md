@@ -54,23 +54,24 @@ Live stream https://youtube.com/live/ltdG8IpYJZY?feature=share
 ---------------------------------------
 ### 22/3/2025
 
-Gửi đơn nhắc lại yêu cầu không ngăn chặn tiếp cận thông tin của cư dân đến BQT  
+[Gửi đơn nhắc lại yêu cầu không ngăn chặn tiếp cận thông tin của cư dân đến BQT  
+](https://github.com/thevistaanphu/BQT2023-2026/blob/main/Y%C3%8AU_C%E1%BA%A6U_MINH_B%E1%BA%A0CH_TH%C3%94NG_TIN/%C4%90%C6%A0N%20NH%E1%BA%AEC%20L%E1%BA%A0I%20Y%C3%8AU%20C%E1%BA%A6U%20TI%C3%8AP%20C%E1%BA%ACN%20T%C3%80I%20LI%E1%BB%86U_20250322_0001.pd
+)
 
-https://github.com/thevistaanphu/BQT2023-2026/blob/main/Y%C3%8AU_C%E1%BA%A6U_MINH_B%E1%BA%A0CH_TH%C3%94NG_TIN/%C4%90%C6%A0N%20NH%E1%BA%AEC%20L%E1%BA%A0I%20Y%C3%8AU%20C%E1%BA%A6U%20TI%C3%8AP%20C%E1%BA%ACN%20T%C3%80I%20LI%E1%BB%86U_20250322_0001.pd
-
-Live stream: https://youtube.com/live/X0hUXIsVjWs?feature=share
+[Live stream](https://youtube.com/live/X0hUXIsVjWs?feature=share)
 ----------------------
 29/3/2025
 
-Gửi đơn nhắc lại yêu cầu không ngăn chặn thông tin lần 2 ( lần thứ 3 gửi đơn)
-https://github.com/thevistaanphu/BQT2023-2026/blob/main/Y%C3%8AU_C%E1%BA%A6U_MINH_B%E1%BA%A0CH_TH%C3%94NG_TIN/%C4%90%E1%BB%81%20ngh%E1%BB%8B%20ti%E1%BA%BFp%20c%E1%BA%ADn%20th%C3%B4ng%20tin%20l%E1%BA%A7n%203_20250403_0001_20250403_0001.pdf
+[Gửi đơn nhắc lại yêu cầu không ngăn chặn thông tin lần 2 ( lần thứ 3 gửi đơn)
+](https://github.com/thevistaanphu/BQT2023-2026/blob/main/Y%C3%8AU_C%E1%BA%A6U_MINH_B%E1%BA%A0CH_TH%C3%94NG_TIN/%C4%90%E1%BB%81%20ngh%E1%BB%8B%20ti%E1%BA%BFp%20c%E1%BA%ADn%20th%C3%B4ng%20tin%20l%E1%BA%A7n%203_20250403_0001_20250403_0001.pdf
+)
 
-Livestream https://youtube.com/live/hTFq9LmoivI?feature=share
+[Livestream](https://youtube.com/live/hTFq9LmoivI?feature=share) 
 -------------------------
 ### 5/4/2025
 
-Lập biên bản với BQL xác nhận các tài liệu chưa nhận được phản hồi 
+[Lập biên bản với BQL xác nhận các tài liệu chưa nhận được phản hồi 
+](https://github.com/thevistaanphu/BQT2023-2026/blob/main/Y%C3%8AU_C%E1%BA%A6U_MINH_B%E1%BA%A0CH_TH%C3%94NG_TIN/Bi%C3%AAn%20b%E1%BA%A3n%20ghi%20nh%E1%BA%ADn%20c%C3%A1c%20t%C3%A0i%20li%E1%BB%87u%20ch%C6%B0a%20c%C3%B3%20th%C3%B4ng%20tin.pdf
+)
 
-https://github.com/thevistaanphu/BQT2023-2026/blob/main/Y%C3%8AU_C%E1%BA%A6U_MINH_B%E1%BA%A0CH_TH%C3%94NG_TIN/Bi%C3%AAn%20b%E1%BA%A3n%20ghi%20nh%E1%BA%ADn%20c%C3%A1c%20t%C3%A0i%20li%E1%BB%87u%20ch%C6%B0a%20c%C3%B3%20th%C3%B4ng%20tin.pdf
-
-Livestream : https://youtube.com/live/w1F3pTpA_fQ?feature=share
+[Livestream](https://youtube.com/live/w1F3pTpA_fQ?feature=share) 
