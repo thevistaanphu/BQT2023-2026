@@ -1,5 +1,7 @@
 # THƯ NGỎ TỚI CƯ DÂN
 
+Kính gửi cư dân,
+
 Qua các lần thay đổi Ban Quản Trị (‘BQT’) tại The Vista An Phú Quận 2 đã phát sinh nhiều vấn đề bất cập trong việc sử dụng quỹ bảo trì và quỹ vận hành gây ảnh hưởng lớn đến quyền lợi cư dân. Do vậy cư dân đã kêu gọi Ban Quản Trị (BQT) nhiệm kỳ 2023-2026 xem xét và khắc phục các quy định sai pháp luật tồn đọng để đảm bảo tính minh bạch tài chính, giải trình và báo cáo đầy đủ công tác sử dụng quỹ, tuân thủ pháp luật và các quy chế để tránh những khiếu nại phát sinh trong quá khứ.
 
 Sau Hội Nghị Nhà Chung Cư (‘HNNCC’) 2024, BQT liên tục có các động thái ngăn chặn thông tin, không minh bạch trong các quyết định, không công khai và giải trình cụ thể. Các dịch vụ bảo vệ, vệ sinh , cây xanh, tiện ích chung càng ngày càng đi xuống, trong khi phí quản lí tăng không thông qua biểu quyết của HNNCC. Do vậy từ tháng 11/2024 tôi đã trực tiếp xuống họp để làm rõ các công tác sử dụng quỹ. để  thêm hiểu thông tin. Do vậy Từ tháng 3/2025, 4 cư dân (ông Llyod, bà Giang, bà Hằng, bà Trâm) đã cùng ký đơn yêu cầu BQT cho tiếp cận các thông tin liên quan đến việc sử dụng quỹ bảo trì, quỹ vận hành.
