@@ -15,7 +15,7 @@ Cư dân có thể tham khảo một số nội dung quy định của pháp lu�
 - Xem lại các hợp đồng và quy chế được bàn giao cho các chủ sở hữu khi mua trực tiếp từ Capital Land
 
 
-# Lộ Trình Dự kiến 
+# Lộ Trình Minh Bạch Thông Tin
 
 1. Gửi tổng hợp các ý kiến -> đã gửi tháng 1/ 2025 nhưng không được kiểm tra và giải đáp đầy đủ qua các cuộc họp sau đó. Tiêp tục có các hành vi ngăn chặn thông tin và chửi mắng cư dân
 2. Tập hợp 1 vài cư dân đưa đơn lên phòng BQL và BQT yêu cầu cung cấp thông tin -> từ tháng 3/2025 - 4/2025 tiếp tục không nhận được phản hồi và tiếp tục có các hành vi kích động , ngăn chặn thông tin
