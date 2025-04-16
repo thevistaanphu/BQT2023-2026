@@ -20,9 +20,6 @@ Cư dân có thể tham khảo một số nội dung quy định của pháp lu�
 
 # Các link tài liệu quan trọng cư dân có thể tham khảo thêm 
 
-[Link các nhóm
-](https://github.com/thevistaanphu/BQT2023-2026/blob/main/Y%C3%8AU_C%E1%BA%A6U_MINH_B%E1%BA%A0CH_TH%C3%94NG_TIN/LINK_QUAN_TR%E1%BB%8CNG.md)
-
 [Link đơn gửi cơ quan chức năng 
 ](https://docs.google.com/document/d/1XJOs4PfZbAHWpLfRw92vXAdoY_xcXX0y1DEGbSCZIT0/edit?tab=t.0)
 
@@ -31,6 +28,9 @@ Cư dân có thể tham khảo một số nội dung quy định của pháp lu�
 
 [Dữ liệu tòa nhà qua các thời kì ( dữ liệu không đầy đủ do BQT không bảo quản tôt các tài liệu)
 ](https://github.com/thevistaanphu/Management_Office)
+
+[Link các nhóm
+](https://github.com/thevistaanphu/BQT2023-2026/blob/main/Y%C3%8AU_C%E1%BA%A6U_MINH_B%E1%BA%A0CH_TH%C3%94NG_TIN/LINK_QUAN_TR%E1%BB%8CNG.md)
 
 [BQR 2023 - 2026 
 ](https://github.com/thevistaanphu) : Hội nghị nhà chung cư , báo cáo BQT, yêu cầu minh bạch thông tin
