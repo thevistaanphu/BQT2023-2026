@@ -68,7 +68,7 @@ Xem các bài viết về vấn đề này:
 - [https://www.facebook.com/share/p/16XRZW6mC1/](https://www.facebook.com/share/p/16XRZW6mC1/)
 
 
-Cư dân có thể đi vòng quanh tham khảo các chung cư từng yêu cầu minh bạch thông tin sau khi ** làm dứt điểm và kiểm tra lại toàn bộ quy trình và hiện trạng ** đều có những thay đổi tich cực
+Cư dân có thể đi vòng quanh tham khảo các chung cư từng yêu cầu minh bạch thông tin sau khi **làm dứt điểm và kiểm tra lại toàn bộ quy trình và hiện trạng** đều có những thay đổi tích cực
 
 ## Tại sao không đợi BQT hiện tại hết nhiệm kỳ rồi lúc đó ứng cử vào sẽ có đầy đủ thông tin? ##
 
