@@ -61,11 +61,14 @@ Chỉ khi cư dân biết được quy trình không đúng luật chỗ nào th
 
 ## Đưa thông tin ầm ĩ như vậy sẽ làm giảm giá nhà và các BQT / BQL tốt không vào? ##
 
-Gần như tất cả các chung cư tại Sài Gòn đều phải trải qua quá trình này mới trở nên minh bạch và tốt hơn. Và khi có môi trường tốt thì không sợ gì không có BQT / BQL tốt, như câu thành ngữ thường nói "đất lành chim đậu".
+Gần như tất cả các chung cư tại Sài Gòn đều phải trải qua quá trình này mới trở nên minh bạch và tốt hơn. Một khi môi trường quản lý căn hộ tốt, các cư dân năm luật, có quy định và giám sát chặt chẽ thì không lo không có BQT / BQL tốt hoặc giá nhà hạ như câu thành ngữ thường nói "đất lành chim đậu".
 
 Xem các bài viết về vấn đề này:
 - [https://www.facebook.com/share/p/16MNKWccQ7/](https://www.facebook.com/share/p/16MNKWccQ7/)
 - [https://www.facebook.com/share/p/16XRZW6mC1/](https://www.facebook.com/share/p/16XRZW6mC1/)
+
+
+Cư dân có thể đi vòng quanh tham khảo các chung cư từng yêu cầu minh bạch thông tin sau khi ** làm dứt điểm và kiểm tra lại toàn bộ quy trình và hiện trạng ** đều có những thay đổi tich cực
 
 ## Tại sao không đợi BQT hiện tại hết nhiệm kỳ rồi lúc đó ứng cử vào sẽ có đầy đủ thông tin? ##
 
