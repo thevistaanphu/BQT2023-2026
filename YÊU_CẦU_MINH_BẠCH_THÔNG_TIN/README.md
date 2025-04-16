@@ -18,10 +18,16 @@ Cư dân có thể tham khảo một số nội dung quy định của pháp lu�
 - Các hợp đồng và quy chế được bàn giao cho các chủ sở hữu khi mua trực tiếp từ Capital Land
 - [FAQ - Tại sao cư dân cần đưa đơn lên chính quyền ](https://github.com/thevistaanphu/BQT2023-2026/blob/main/Y%C3%8AU_C%E1%BA%A6U_MINH_B%E1%BA%A0CH_TH%C3%94NG_TIN/FAQ_%C4%90%C6%A1n%20g%E1%BB%ADi%20chinh%20quy%E1%BB%81n.md) 
 
-Các link tài liệu quan trọng cư dân có thể tham khảo thêm 
+# Các link tài liệu quan trọng cư dân có thể tham khảo thêm 
 
-[Link nhóm và đơn 
+[Link các nhóm
 ](https://github.com/thevistaanphu/BQT2023-2026/blob/main/Y%C3%8AU_C%E1%BA%A6U_MINH_B%E1%BA%A0CH_TH%C3%94NG_TIN/LINK_QUAN_TR%E1%BB%8CNG.md)
+
+[Link đơn gửi cơ quan chức năng 
+](https://docs.google.com/document/d/1XJOs4PfZbAHWpLfRw92vXAdoY_xcXX0y1DEGbSCZIT0/edit?tab=t.0)
+
+[Form lấy chữ ký - Mong cư dân in ra ký và gửi các tầng trưởng. Nên cô gắng thu thập chữ ký các anh chị cùng tầng
+](https://docs.google.com/document/d/1F9bK-f5ppOeWfy8we_VraTTEorIhYM4soF92SqVjlws/edit?usp=sharing)
 
 [Dữ liệu tòa nhà qua các thời kì ( dữ liệu không đầy đủ do BQT không bảo quản tôt các tài liệu)
 ](https://github.com/thevistaanphu/Management_Office)
