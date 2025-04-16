@@ -14,8 +14,7 @@ Cư dân có thể tham khảo một số nội dung quy định của pháp lu�
 - [Hướng dẫn về phí quản lý nhà chung cư mới nhất](https://thuvienphapluat.vn/chinh-sach-phap-luat-moi/vn/ho-tro-phap-luat/tu-van-phap-luat/68639/huong-dan-ve-phi-quan-ly-nha-chung-cu-moi-nhat)
 - [Nghiêm cấm các hành vi sử dụng quỹ bảo trì cho công việc quản lý vận hành](https://baochinhphu.vn/co-duoc-dung-quy-bao-tri-de-lap-camera-cho-cac-tang-chung-cu-102220909101912134.htm#:~:text=B%E1%BB%99%20X%C3%A2y%20d%E1%BB%B1ng%20tr%E1%BA%A3%20l%E1%BB%9Di,v%C3%A0%20c%C3%A1c%20m%E1%BB%A5c%20%C4%91%C3%ADch%20kh%C3%A1c%22)
 - [Quỹ bảo trì có được dùng cho mục đích khác nếu được Hội nghị nhà chung cư biểu quyết thông qua](https://soxaydung.hochiminhcity.gov.vn/tuyen-dung/-/asset_publisher/hoKTpfr7khKO/content/tra-loi-cau-hoi-cua-ong-huynh-thien-bao-hoi-ve-quy-bao-tri-co-uoc-dung-cho-muc-ich-khac-neu-uoc-hoi-nghi-nha-chung-cu-bieu-quyet-thong-qua-)
-- Xem lại các hợp đồng và quy chế được bàn giao cho các chủ sở hữu khi mua trực tiếp từ Capital Land
-
+- Các hợp đồng và quy chế được bàn giao cho các chủ sở hữu khi mua trực tiếp từ Capital Land
 
 # Lộ Trình Minh Bạch Thông Tin
 
