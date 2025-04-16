@@ -18,6 +18,17 @@ Cư dân có thể tham khảo một số nội dung quy định của pháp lu�
 - Các hợp đồng và quy chế được bàn giao cho các chủ sở hữu khi mua trực tiếp từ Capital Land
 - [FAQ - Tại sao cư dân cần đưa đơn lên chính quyền ](https://github.com/thevistaanphu/BQT2023-2026/blob/main/Y%C3%8AU_C%E1%BA%A6U_MINH_B%E1%BA%A0CH_TH%C3%94NG_TIN/FAQ_%C4%90%C6%A1n%20g%E1%BB%ADi%20chinh%20quy%E1%BB%81n.md) 
 
+Các link tài liệu quan trọng cư dân có thể tham khảo thêm 
+
+[Link nhóm và đơn 
+](https://github.com/thevistaanphu/BQT2023-2026/blob/main/Y%C3%8AU_C%E1%BA%A6U_MINH_B%E1%BA%A0CH_TH%C3%94NG_TIN/LINK_QUAN_TR%E1%BB%8CNG.md)
+
+[Dữ liệu tòa nhà qua các thời kì ( dữ liệu không đầy đủ do BQT không bảo quản tôt các tài liệu)
+](https://github.com/thevistaanphu/Management_Office)
+
+[BQR 2023 - 2026 
+](https://github.com/thevistaanphu) : Hội nghị nhà chung cư , báo cáo BQT, yêu cầu minh bạch thông tin
+
 # Lộ Trình Minh Bạch Thông Tin
 
 1. Gửi tổng hợp các ý kiến -> đã gửi tháng 1/ 2025 nhưng không được kiểm tra và giải đáp đầy đủ qua các cuộc họp sau đó. Tiêp tục có các hành vi ngăn chặn thông tin và chửi mắng cư dân
