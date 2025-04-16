@@ -20,7 +20,7 @@ Cư dân có thể tham khảo một số nội dung quy định của pháp lu�
 1. Gửi tổng hợp các ý kiến -> đã gửi tháng 1/ 2025 nhưng không được kiểm tra và giải đáp đầy đủ qua các cuộc họp sau đó. Tiêp tục có các hành vi ngăn chặn thông tin và chửi mắng cư dân
 2. Tập hợp 1 vài cư dân đưa đơn lên phòng BQL và BQT yêu cầu cung cấp thông tin -> từ tháng 3/2025 - 4/2025 tiếp tục không nhận được phản hồi và tiếp tục có các hành vi kích động , ngăn chặn thông tin
 3. Tháng 4/ 2025 -> tập hợp chữ kí cư dân, 50 chữ ký lần 1 và 150 chữ ký lần 2  ( 20%). Nếu được nhiều hơn thì tốt
-4. Tháng 7/2025 -> nếu tiếp tục không có động thái từ chính quyền yêu cầu cung cấp và làm rõ sẽ băt đầu gửi đơn lên Tòa Án Nhân Dân Thành Phố Hồ Chí Minh yêu cầu giải quyết các tranh chấp về tài chính của chung cư
+4. Tháng 7/2025 -> tiền hành gửi đơn lên Tòa Án Nhân Dân Thành Phố Hồ Chí Minh yêu cầu giải quyết các tranh chấp về tài chính của chung cư
 
 
  
