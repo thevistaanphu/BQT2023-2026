@@ -52,6 +52,7 @@ Live stream https://youtube.com/live/ltdG8IpYJZY?feature=share
 Gửi đơn nhắc lại yêu cầu không ngăn chặn tiếp cận thông tin của cư dân đến BQT  
 
 https://github.com/thevistaanphu/BQT2023-2026/blob/main/Y%C3%8AU_C%E1%BA%A6U_MINH_B%E1%BA%A0CH_TH%C3%94NG_TIN/%C4%90%C6%A0N%20NH%E1%BA%AEC%20L%E1%BA%A0I%20Y%C3%8AU%20C%E1%BA%A6U%20TI%C3%8AP%20C%E1%BA%ACN%20T%C3%80I%20LI%E1%BB%86U_20250322_0001.pd
+
 Live stream: https://youtube.com/live/X0hUXIsVjWs?feature=share
 ----------------------
 29/3/2025
