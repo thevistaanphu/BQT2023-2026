@@ -1,5 +1,22 @@
-Sau nhiều tháng yêu cầu minh bạch thông tin và yêu cầu giải trình không thành công, ngày 17/3/2025 cư dân đã xuông yêu cầu minh bạch thông tin 
-Folder này sẽ dùng để log lại các đơn yêu cầu minh bạch thông tin của cư dân
+# THƯ NGỎ TỚI CƯ DÂN
+
+Qua các lần thay đổi Ban Quản Trị (‘BQT’) tại The Vista An Phú Quận 2 đã phát sinh nhiều vấn đề bất cập trong việc sử dụng quỹ bảo trì và quỹ vận hành gây ảnh hưởng lớn đến quyền lợi cư dân. Do vậy cư dân đã kêu gọi Ban Quản Trị (BQT) nhiệm kỳ 2023-2026 xem xét và khắc phục các quy định sai pháp luật tồn đọng để đảm bảo tính minh bạch tài chính, giải trình và báo cáo đầy đủ công tác sử dụng quỹ, tuân thủ pháp luật và các quy chế để tránh những khiếu nại phát sinh trong quá khứ.
+
+Sau Hội Nghị Nhà Chung Cư (‘HNNCC’) 2024, BQT liên tục có các động thái ngăn chặn thông tin, không minh bạch trong các quyết định, không công khai và giải trình cụ thể. Các dịch vụ bảo vệ, vệ sinh , cây xanh, tiện ích chung càng ngày càng đi xuống, trong khi phí quản lí tăng không thông qua biểu quyết của HNNCC. Do vậy từ tháng 11/2024 tôi đã trực tiếp xuống họp để làm rõ các công tác sử dụng quỹ. để  thêm hiểu thông tin. Do vậy Từ tháng 3/2025, 4 cư dân (ông Llyod, bà Giang, bà Hằng, bà Trâm) đã cùng ký đơn yêu cầu BQT cho tiếp cận các thông tin liên quan đến việc sử dụng quỹ bảo trì, quỹ vận hành.
+Đến ngày 15/04/2025, chúng tôi vẫn chưa nhận được phản hồi từ BQT cho phép tiếp cận thông tin và cung cấp các số liệu liên quan. Thêm vào đó, BQT liên tục có các hành vi cấm cư dân chia sẻ nội dung họp, ghi âm, và có các động thái khiêu khích và kích động cư dân. Do lo ngại các hành vi lạm quyền dẫn đến thất thoát cho quỹ Bảo Trì và quỹ Vận Hành và nghi ngờ có sự khuất tất, chúng tôi viết đơn như dưới đây để gửi lên các cấp chính quyền, thông qua cổng thông tin điện tử quốc gia, để cập nhập giải quyết. Chúng tôi mong muốn cư dân cùng ký đơn đồng thuận yêu cầu chính quyền và các bên liên quan cung cấp thông tin cần thiết và chấm dứt những hành vi ngăn chặn minh bạch thông tin
+
+Cư dân có thể tham khảo một số nội dung quy định của pháp luật về quỹ Bảo Trì và Quỹ Vận Hành 
+[Hướng dẫn nguyên tắc và hạng mục sử dụng quỹ Bảo Trì] (https://thuvienphapluat.vn/phap-luat/nhung-hang-muc-nao-duoc-su-dung-quy-bao-tri-cua-chung-cu-viec-bao-tri-nha-chung-cu-thuc-hien-theo-n-27075.html)
+Phân biệt kinh phí quản lý và kinh phí bảo trì
+Hướng dẫn về phí quản lý nhà chung cư mới nhất
+Nghiêm cấm các hành vi sử dụng quỹ bảo trì cho công việc quản lý vận hành
+Các hợp đồng và quy chế được bàn giao cho các chủ sở hữu khi mua trực tiếp từ Capital Land
+
+
+
+
+
+ 
 
 -----------------------------
 19/3/2925
