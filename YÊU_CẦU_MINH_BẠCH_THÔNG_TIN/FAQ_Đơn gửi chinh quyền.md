@@ -81,3 +81,8 @@ Tất cả cư dân có quyền tiếp cận thông tin, và nếu một tập t
 ## Ký đơn chắc gì chính quyền sẽ có động thái? ##
 
 Nếu không bắt đầu, chúng ta sẽ không biết sẽ đi về đâu. Do vậy, cần phải bắt đầu càng sớm càng tốt, và để các cư dân hiểu vấn đề cấp bách của quỹ Bảo Trì để không tiếp tục duyệt sai, cùng tham gia kiểm soát và yêu cầu minh bạch thông tin trong HNNCC.
+
+## Đây có phải là đơn tố cáo Ban Quản Trị? ##
+
+Việc truy tố, tố cáo là nhiệm vụ của cơ quan chức năng. Cư dân chỉ đơn giản là thấy có các hành vi không đúng với luật, khuất tất và yêu cầu cung cấp thông tin để làm rõ. Do liên tiếp có các hành vi ngăn chặn thông tin, lạm quyền xảy ra tiếp theo đó nên cư dân yêu cầu chính quyền cùng vào hỗ trợ
+
