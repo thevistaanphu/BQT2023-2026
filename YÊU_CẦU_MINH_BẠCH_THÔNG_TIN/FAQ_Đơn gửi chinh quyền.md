@@ -102,3 +102,6 @@ Việc truy tố, tố cáo là nhiệm vụ của cơ quan chức năng. Cư d�
 Xin khẳng định đơn này HOÀN TOÀN KHÔNG LIÊN QUAN tới việc yêu cầu BQT từ nhiệm, hoặc cáo buộc bất kì thành viên Ban Quản Trị nào tham ô tài sản
 
 Đây là đơn kiến nghị chính quyền vào cuộc yêu cầu cung cấp thông tin vì cư dân không được cung cấp thông tin và thời gian qua đã xảy ra rất nhiều vấn đề khuất tất, hành vi lạm quyền
+
+## Rất khó để BQT cung cấp thông tin cho từng người ##
+Có thể, và do vậy tôi gửi đơn về các hành vi chưa minh bạch để tập thể cư dân cùng xem xét đánh giá và lấy đồng thuận của tập thể cư dân việc BQT cần cung cấp các giấy tờ liên quan
