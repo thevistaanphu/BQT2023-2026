@@ -94,6 +94,6 @@ Nếu không bắt đầu, chúng ta sẽ không biết sẽ đi về đâu. Do 
 Việc truy tố, tố cáo là nhiệm vụ của cơ quan chức năng. Cư dân chỉ đơn giản là thấy có các hành vi không đúng với luật, khuất tất và yêu cầu cung cấp thông tin để làm rõ. Do liên tiếp có các hành vi ngăn chặn thông tin, lạm quyền xảy ra tiếp theo đó nên cư dân yêu cầu chính quyền cùng vào hỗ trợ
 
 ## Đơn này có tương đương với việc kêu gọi bầu Ban Quản Trị mới ? ##
-Xin khẳng định đơn này HOÀN TOÀN KHÔNG LIÊN QUAN tới việc yêu cầu BQT từ nhiệm, hoặc cáo buộc bất kì thành viên Ban Quản Trị nào tham ô quỹ hoặc tài sản
+Xin khẳng định đơn này HOÀN TOÀN KHÔNG LIÊN QUAN tới việc yêu cầu BQT từ nhiệm, hoặc cáo buộc bất kì thành viên Ban Quản Trị nào tham ô tài sản
 
 Đây là đơn kiến nghị chính quyền vào cuộc yêu cầu cung cấp thông tin vì cư dân không được cung cấp thông tin và thời gian qua đã xảy ra rất nhiều vấn đề khuất tất, hành vi lạm quyền
