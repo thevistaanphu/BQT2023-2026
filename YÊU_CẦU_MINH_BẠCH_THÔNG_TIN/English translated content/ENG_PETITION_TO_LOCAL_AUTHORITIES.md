@@ -30,7 +30,7 @@ We, the undersigned residents currently living at The Vista An Phú Condominium 
 
 2.1. *The 2024 Maintenance Fund usage plan violates regulations:* The plan sent to residents in May 2024 did not comply with Articles 31, 33 of Circular 05/2024 (regarding submission procedures, percentage contributions of owners, and agreement through the Condominium Conference - HNCC).
     - Failure to prove the legal basis for including additional items (maintenance of generator systems, BMS, wastewater treatment, tile replacement, painting sauna ceilings...);
-    - Violates the principle that it can only be used for common ownership areas, corresponding to the contributed area.
+    - Violates the principle that it can only be used for common ownership areas, corresponding to the contributed % of the area.
 
 2.2. *Failure to publicly disclose the responsibilities and powers of each BQT member:* The BQT did not clearly announce who is responsible for inspecting, supervising, and accepting each item, contrary to legal regulations and failing to ensure transparency when issues arise regarding acceptance and completion.
 
