@@ -2,7 +2,9 @@
 
 ## Tại sao cư dân The Vista lại làm đơn kiến nghị này? ##
 
-Cư dân làm đơn kiến nghị này vì đã phát sinh nhiều vấn đề bất cập trong việc sử dụng quỹ bảo trì và quỹ vận hành. Ban Quản Trị (BQT) nhiệm kỳ 2023-2026 đã không xem xét và khắc phục các quy định sai pháp luật tồn đọng, dẫn đến lo ngại về tính minh bạch tài chính, việc giải trình và báo cáo công tác sử dụng quỹ không đầy đủ, và không tuân thủ pháp luật. Sau Hội Nghị Nhà Chung Cư (HNNCC) 2024, BQT còn có các động thái ngăn chặn thông tin, thiếu minh bạch trong quyết định, không công khai và giải trình cụ thể. Cư dân đã nhiều lần yêu cầu BQT cung cấp thông tin liên quan đến việc sử dụng quỹ nhưng không được phản hồi.
+Cư dân làm đơn kiến nghị này vì đã phát sinh nhiều vấn đề bất cập trong việc sử dụng quỹ bảo trì và quỹ vận hành. Ban Quản Trị (BQT) nhiệm kỳ 2023-2026 đã không xem xét và khắc phục các quy định sai pháp luật tồn đọng, dẫn đến lo ngại về tính minh bạch tài chính
+
+Thêm nữa công tác báo cáo và sử dụng quỹ không đúng theo quy định pháp luật, không công khai và giải trình cụ thể. Chi phí quản lý tăng nhưng chất lượng đi xuống và các hành vi lạm quyền dẫn đến cư dân nghi ngờ các vấn đề khuất tất. Cư dân đã nhiều lần yêu cầu BQT cung cấp thông tin liên quan đến việc sử dụng quỹ nhưng không được phản hồi.
 
 ## Đơn kiến nghị này dựa trên những căn cứ pháp lý nào? ##
 
