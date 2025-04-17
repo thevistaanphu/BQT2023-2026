@@ -121,3 +121,8 @@ Sincerely thank you!
 
 **RESIDENTS OF THE VISTA AN PHÚ CONDOMINIUM**
 *(Attached list of collective resident signatures)*
+
+-----------------------------
+** Note ** : this page only collects the content of the petition, for full letter please click [HERE](https://www.facebook.com/share/p/16D7b6XEpM/)
+
+After 4/22/2024 the letter will be sent out to the residence to sign
