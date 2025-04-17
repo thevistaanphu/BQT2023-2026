@@ -104,7 +104,7 @@ We, the undersigned residents currently living at The Vista An Phú Condominium 
 7.  *Responsibility and Handling of Violations:*
     - If the BQT and BQL CBRE continue to violate, deliberately conceal information, or misuse residents' assets, we will request competent authorities to inspect, examine, and handle the situation or initiate legal proceedings according to the law to claim compensation for losses.
 
-## IV. ATTACHED DOCUMENTS (IF ANY)
+## IV. ATTACHED DOCUMENTS
 
 - Evidence of failure to provide information (official letters, emails...).
 - HNCC documents and voting results.
