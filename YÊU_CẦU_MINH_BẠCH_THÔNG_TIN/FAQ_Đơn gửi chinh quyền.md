@@ -1,4 +1,4 @@
-# Câu Hỏi Thường Gặp (FAQ)  trong lá đơn gửi tới chinh quyền 
+# Câu Hỏi Thường Gặp (FAQ) trong lá đơn gửi tới chính quyền 
 
 ## Tại sao cư dân The Vista lại làm đơn kiến nghị này? ##
 
