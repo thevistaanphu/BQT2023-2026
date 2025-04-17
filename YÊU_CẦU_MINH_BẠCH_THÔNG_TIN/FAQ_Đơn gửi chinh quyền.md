@@ -86,3 +86,10 @@ Nếu không bắt đầu, chúng ta sẽ không biết sẽ đi về đâu. Do 
 
 Việc truy tố, tố cáo là nhiệm vụ của cơ quan chức năng. Cư dân chỉ đơn giản là thấy có các hành vi không đúng với luật, khuất tất và yêu cầu cung cấp thông tin để làm rõ. Do liên tiếp có các hành vi ngăn chặn thông tin, lạm quyền xảy ra tiếp theo đó nên cư dân yêu cầu chính quyền cùng vào hỗ trợ
 
+## Cụ thể BQT nào có hành vi gì trong việc ngăn cản cư dân ghi âm, chia sẻ cuộc họp, và kích động cư dân ?
+
+- Ông Trần Xuân Phương đã gọi bảo vệ dẫn cư dân ra khỏi phòng họp để ngăn chận cư dân chia sẻ nội dung họp
+- Ông Nguyễn Hoàng yêu cầu cư dân phải xin phép Ban Quản Trị trước khi chia sẻ cuộc họp và không đưa các văn bản pháp lý cụ thể về quy định cấm cư dân chia sẻ nội dung họp
+- Ông Nguyễn Văn Triển không đồng ý livestream, hù dọa cư dân phải chịu trách nhiệm trước pháp luật,  yêu cầu Ban Quản Lý cùng không đồng ý việc cư dân livestream cuộc họp.
+- Ông Lawrence Eze Mbanu kích động cư dân qua các hành động đập bàn, giật điện thoại, đụng chạm áp sát, đặt điều bịa chuyện cá nhân và không  giải trình việc vợ ông được quyền thay mặt Ban Quản Trị  phát tán thông tin cá nhân của cư dân ra nhóm công đồng
+
