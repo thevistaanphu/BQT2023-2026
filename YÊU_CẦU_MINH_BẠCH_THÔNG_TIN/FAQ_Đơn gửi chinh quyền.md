@@ -107,5 +107,5 @@ Xin khẳng định đơn này HOÀN TOÀN KHÔNG LIÊN QUAN tới việc yêu c
 Có thể, và do vậy tôi gửi đơn về các hành vi chưa minh bạch để tập thể cư dân cùng xem xét đánh giá và lấy đồng thuận của tập thể cư dân việc BQT cần cung cấp các giấy tờ liên quan
 
 ## Các thành viên đưa đơn này lên có đang gây cản trở cho hoạt động của BQT 
-Không thể gọi việc cư dân yêu cầu quyền lợi được pháp luật bảo hộ là gây cản trở được, đặc biệt khi cư dân đã để cho BQT 1.5 để thực hiện lời hứa khi bầu chọn
+Không thể gọi việc cư dân yêu cầu quyền lợi được pháp luật bảo hộ là gây cản trở được, đặc biệt khi cư dân đã để cho BQT 1.5 năm / 3 năm nhiệm kì để thực hiện lời hứa khi bầu chọn
 Cư dân nên chú ý tình trạng [đánh lạc hướng và thao túng thông tin](https://www.facebook.com/share/p/1CXUkWcf8h/) các chung cư khác đã sử dụng để dập các yêu cầu minh bạch thông tin của tập thể cư dân
