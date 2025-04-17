@@ -82,7 +82,12 @@ Tất cả cư dân có quyền tiếp cận thông tin, và nếu một tập t
 
 Nếu không bắt đầu, chúng ta sẽ không biết sẽ đi về đâu. Do vậy, cần phải bắt đầu càng sớm càng tốt, và để các cư dân hiểu vấn đề cấp bách của quỹ Bảo Trì để không tiếp tục duyệt sai, cùng tham gia kiểm soát và yêu cầu minh bạch thông tin trong HNNCC.
 
-## Cụ thể BQT nào có hành vi gì trong việc ngăn cản cư dân ghi âm, chia sẻ cuộc họp, và kích động cư dân ?
+## Rất nhiều vấn đề trong đơn thuộc vấn đề của BQT cũ và đã tồn đọng rất lâu chứ không phải do BQT và BQL mới ##
+
+BQT hiện tại đã hoạt động gần 1.5 năm / nhiệm kỳ 3 năm. Tuy nhiên BQT không hề có bất kì động thái nào kiểm tra lại toàn bộ quy trình xem lỗ hổng ở đâu, cách khắc phục và hoàn toàn không công khai với cư dân các hoạt động của quỹ Bảo Trì
+
+Do vậy cư dân yêu cầu cung cấp thông tin và yêu cầu chính quyền vào cùng hỗ trợ. Việc thuộc trách nhiệm của ai, vi phạm như thế nào, ai phải bồi thường thuộc trách nhiệm của các cơ quan chức năng
+## Cụ thể BQT nào có hành vi gì trong việc ngăn cản cư dân ghi âm, chia sẻ cuộc họp, và kích động cư dân ? ##
 
 - Ông Trần Xuân Phương đã gọi bảo vệ dẫn cư dân ra khỏi phòng họp để ngăn chận cư dân chia sẻ nội dung họp
 - Ông Nguyễn Hoàng Minh Triết yêu cầu cư dân phải xin phép Ban Quản Trị trước khi chia sẻ cuộc họp và không đưa các văn bản pháp lý cụ thể về quy định cấm cư dân chia sẻ nội dung họp
