@@ -33,11 +33,11 @@ Legal regulations take precedence. If residents are misinformed and approve impr
 ## The Management Board (BQT) claims to be too busy to consult all residents. Is this valid?
 The BQT is responsible for overseeing and reporting fund usage. Residents must approve these actions, and specific members must be assigned and held accountable. Being "too busy" is not a valid excuse for bypassing these obligations.
 
-## What if residents don’t review the information provided by the BQT?
+## Is it true that the information is sent out but residents don’t review the information provided by the BQT?
 The BQT must ensure all provided information is complete and accurate. If they have fulfilled their duties, they should not worry about scrutiny.
 
 ## How can these issues be resolved?
-The first step is to audit and verify all actions taken by the 2023-2026 BQT. Identifying legal violations is essential before proposing changes.
+The first step is to audit and verify all actions taken by the 2023-2026 BQT. Identifying specific violations with data and understand why and how it happened is essential before proposing changes.
 
 ## Will publicizing these issues negatively impact property values or discourage good management teams?
 Transparency is vital for long-term improvements. Other condominiums in Ho Chi Minh City have undergone similar processes to enhance governance.
