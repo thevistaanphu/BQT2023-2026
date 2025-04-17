@@ -108,4 +108,4 @@ Có thể, và do vậy tôi gửi đơn về các hành vi chưa minh bạch đ
 
 ## Các thành viên đưa đơn này lên có đang gây cản trở cho hoạt động của BQT 
 - Không thể gọi việc cư dân yêu cầu quyền lợi được pháp luật bảo hộ là gây cản trở được, đặc biệt khi cư dân đã để cho BQT 1.5 năm / 3 năm nhiệm kì để thực hiện lời hứa khi bầu chọn
-- Cư dân nên chú ý tình trạng [đánh lạc hướng và thao túng thông tin](https://www.facebook.com/share/p/1CXUkWcf8h/) các chung cư khác đã sử dụng để dập các yêu cầu minh bạch thông tin của tập thể cư dân
+- Cư dân nên chú ý tình trạng [đánh lạc hướng và thao túng thông tin](https://www.facebook.com/share/p/1CXUkWcf8h/) các chung cư khác đã trải qua nhằm dập các yêu cầu minh bạch thông tin của tập thể cư dân
