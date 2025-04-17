@@ -108,7 +108,7 @@ Có thể, và do vậy tôi gửi đơn về các hành vi chưa minh bạch đ
 
 ## BQT không thể hỏi ý kiến cư dân từng vấn đề được vì sẽ làm cản trở các hoạt động vận hành ##
 1. Cần phân biệt rõ cái gì luật yêu cầu thuộc thẩm quyền của tập thể cư dân quyết định. Luật không quy định thay 1 con ốc cũng phải hỏi ý kiến cư dân
-2. Cần phân biệt vai trò và trách nhiệm của BQT là gì, tại sao hoạt động vận hành lại thuộc vai trò BQT quyết? Như vậy chúng ta thuê BQL làm gì ? Tại sao lại đánh từ câu chuyện những vấn đề luật yêu cầu phải công khai thành hoạt động vận hành?
+2. Không thể tráo khái niệm việc cư dân yêu cầu minh bạch thành cư dân yêu cầu từng việc trong quản lý vận hành phải báo cáo được.Như vậy chúng ta thuê BQL làm gì ? 
 3. Pháp luật Việt Nam là trên hết, không thể vì lý do luật quá phiền hà mà bỏ không theo luật được
 4. Cần kiểm tra lại xem BQT đã hoàn tất khóa học quản lý chung cư chưa. Nếu đã hoàn thành chắc chắn sẽ được biết vai trò và trách nhiệm của BQT
 
