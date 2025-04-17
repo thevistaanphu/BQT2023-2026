@@ -106,6 +106,12 @@ Xin khẳng định đơn này HOÀN TOÀN KHÔNG LIÊN QUAN tới việc yêu c
 ## Rất khó để BQT cung cấp thông tin cho từng người ##
 Có thể, và do vậy tôi gửi đơn về các hành vi chưa minh bạch để tập thể cư dân cùng xem xét đánh giá và lấy đồng thuận của tập thể cư dân việc BQT cần cung cấp các giấy tờ liên quan
 
+## BQT không thể hỏi ý kiến cư dân từng vấn đề được vì sẽ làm cản trở các hoạt động vận hành ##
+1. Cần phân biệt rõ cái gì luật yêu cầu thuộc thẩm quyền của tập thể cư dân quyết định. Luật không quy định thay 1 con ốc cũng phải hỏi ý kiến cư dân
+2. Cần phân biệt vai trò và trách nhiệm của BQT là gì, tại sao hoạt động vận hành lại thuộc vai trò BQT quyết? Như vậy chúng ta thuê BQL làm gì ? Tại sao lại đánh từ câu chuyện những vấn đề luật yêu cầu phải công khai thành hoạt động vận hành?
+3. Pháp luật Việt Nam là trên hết, không thể vì lý do luật quá phiền hà mà bỏ không theo luật được
+4. Cần kiểm tra lại xem BQT đã hoàn tất khóa học quản lý chung cư chưa. Nếu đã hoàn thành chắc chắn sẽ được biết vai trò và trách nhiệm của BQT
+
 ## Các thành viên đưa đơn này lên có đang gây cản trở cho hoạt động của BQT 
 - Không thể gọi việc cư dân yêu cầu quyền lợi được pháp luật bảo hộ là gây cản trở được, đặc biệt khi cư dân đã để cho BQT 1.5 năm / 3 năm nhiệm kì để thực hiện lời hứa khi bầu chọn
 - Cư dân nên chú ý tình trạng [đánh lạc hướng và thao túng thông tin](https://www.facebook.com/share/p/1CXUkWcf8h/) các chung cư khác đã trải qua nhằm dập các yêu cầu minh bạch thông tin của tập thể cư dân
