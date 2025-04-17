@@ -47,7 +47,7 @@ Các công việc này phải được cư dân đồng ý giao phó, phải có
 
 BQT không có quyền quyết thay cư dân, và cũng không có quyền làm hộ các công việc của các bên chuyên về quản lý vận hành và bảo trì.
 
-Do vậy, lý do vì bận, vì nhiều việc mà không lấy ý kiến cư dân, không báo cáo, thay đổi nội dung cư dân biểu quyết trong các hoạt động sử dụng quỹ Bảo Trì là các hành vi vi phạm pháp luật.
+Do vậy, lý do vì bận, vì nhiều việc mà không lấy ý kiến cư dân, không báo cáo, thay đổi nội dung cư dân biểu quyết trong các hoạt động sử dụng quỹ Bảo Trì là các hành vi không đúng pháp luật.
 
 ## BQT có thông báo, có cung cấp thông tin nhưng cư dân không xuống hoặc không xem thì sao? ##
 
