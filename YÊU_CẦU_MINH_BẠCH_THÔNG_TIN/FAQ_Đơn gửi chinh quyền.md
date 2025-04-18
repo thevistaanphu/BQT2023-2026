@@ -118,8 +118,8 @@ Có thể, và do vậy tôi gửi đơn về các hành vi chưa minh bạch đ
 - Không thể gọi việc cư dân yêu cầu quyền lợi được pháp luật bảo hộ là gây cản trở được, đặc biệt khi cư dân đã để cho BQT 1.5 năm / 3 năm nhiệm kì để thực hiện lời hứa khi bầu chọn
 - Cư dân nên chú ý tình trạng [đánh lạc hướng và thao túng thông tin](https://www.facebook.com/share/p/1CXUkWcf8h/) các chung cư khác đã trải qua nhằm dập các yêu cầu minh bạch thông tin của tập thể cư dân
 
-## Cư dân không phải chủ sỡ hữu có được quyền ký đơn
-Hiện tại yếu tố pháp lý chưa đặt nặng như HNNCC nên người:
-- đang ở thuê , có hợp đồng thuê, người gia đình ở chung căn hộ vẫn được kí , vì các cư dân này đang trả tiền và hưởng mọi dịch vụ ở đây nên có quyền lên tiếng
+## Có đúng là cư dân không phải chủ sỡ hữu có được quyền ký đơn ?
+Hiện tại yếu tố pháp lý chưa đặt nặng việc yêu cầu phải chứng minh là chủ sở hữu mới được quyền ký đơn
 
-Việc chứng minh chủ sở hữu chỉ cần thiết khi bầu BQT thì cần giấy ủy quyền của chủ sở hữu
+Những cư dân đang ở thuê , có hợp đồng thuê, người gia đình ở chung căn hộ vẫn được kí , vì các cư dân này đang trả tiền và hưởng mọi dịch vụ ở đây nên có quyền lên tiếng. Việc này cũng được quy định trong nội quy và quy chế
+
