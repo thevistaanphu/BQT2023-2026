@@ -120,7 +120,6 @@ Có thể, và do vậy tôi gửi đơn về các hành vi chưa minh bạch đ
 
 ## Cư dân không phải chủ sỡ hữu có được quyền ký đơn
 Hiện tại yếu tố pháp lý chưa đặt nặng như HNNCC nên người:
-- đang ở thuê , có hợp đồng thuê
-- người gia đình ở chung căn hộ
-vẫn được kí , vì các cư dân này đang trả tiền và hưởng mọi dịch vụ ở đây nên có quyền lên tiếng
+- đang ở thuê , có hợp đồng thuê, người gia đình ở chung căn hộ vẫn được kí , vì các cư dân này đang trả tiền và hưởng mọi dịch vụ ở đây nên có quyền lên tiếng
+
 Việc chứng minh chủ sở hữu chỉ cần thiết khi bầu BQT thì cần giấy ủy quyền của chủ sở hữu
