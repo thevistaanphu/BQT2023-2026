@@ -18,6 +18,56 @@ Các nội dung cư dân yêu cầu xem như hồ sơ gốc từ Capital Land v�
 Cư dân tiếp tục không nhận được nội dung tiếp cận các sao kê ngân hàng của quỹ bảo trì , báo cáo quỹ bảo trì qua các tháng dựa trên cơ sở pháp lý yêu cầu minh bạch thông tin
 
 Do vậy cư dân đưa lên các hành vi sai phạm và yêu cầu cơ quan chức năng vào kiểm tra 
+
+## BQT rất bận, làm sao có đủ thời gian cung cấp và lấy ý kiến hết tất cả cư dân cho việc sử dụng quỹ Bảo Trì? ##
+
+Trách nhiệm của BQT trong việc sử dụng quỹ Bảo Trì là kiểm tra, giám sát, nghiệm thu.
+
+Các công việc này phải được cư dân đồng ý giao phó, phải có tên thành viên phân công công việc và cam kết chịu trách nhiệm cụ thể cho những tranh chấp sau này.
+
+BQT không có quyền quyết thay cư dân, và cũng không có quyền làm hộ các công việc của các bên chuyên về quản lý vận hành và bảo trì.
+
+Do vậy, lý do vì bận, vì nhiều việc mà không lấy ý kiến cư dân, không báo cáo, thay đổi nội dung cư dân biểu quyết trong các hoạt động sử dụng quỹ Bảo Trì là các hành vi không đúng pháp luật.
+
+
+## Có phải BQT có thông báo, có cung cấp thông tin nhưng cư dân không xuống hoặc không xem? ##
+
+Cần kiểm tra lại BQT đã cung cấp cái gì, số liệu và nội dung có đầy đủ chưa, thông báo nội dung gì và BQL có thực hiện không?
+Nếu BQT tự tin đã hoàn thành trách nhiệm thì không có gì lo lắng trong việc tập thể cư dân đưa lên các hành vi vi phạm các điều khoản và yêu cầu thanh tra kiểm tra.
+
+## Tại sao không đợi BQT hiện tại hết nhiệm kỳ rồi lúc đó ứng cử vào sẽ có đầy đủ thông tin? ##
+
+Nếu không yêu cầu minh bạch từ bây giờ, không cải tổ và kiểm tra lại quy trình ngay khi có các dấu hiệu vi phạm thì tất cả các đời BQT về sau đều cũng sẽ bị chung 1 vấn đề cho tới khi hết quỹ.
+
+Bằng chứng là việc rất nhiều lần các BQT mới lên hứa hẹn kiểm tra và rà soát lại quy trình nhưng đều không có động thái rà soát, minh bạch thông tin, đảm bảo thực thi đúng pháp luật.
+
+Tất cả cư dân có quyền tiếp cận thông tin, và nếu một tập thể cư dân thấy vấn đề này là cần thiết thì chúng ta có quyền cùng ký đơn và đưa kiến nghị.
+
+## Rất nhiều vấn đề trong đơn thuộc vấn đề của BQT cũ và đã tồn đọng rất lâu chứ không phải do BQT và BQL mới ##
+
+BQT hiện tại đã hoạt động gần 1.5 năm / nhiệm kỳ 3 năm. Tuy nhiên BQT không hề có bất kì động thái nào kiểm tra lại toàn bộ quy trình xem lỗ hổng ở đâu, cách khắc phục và hoàn toàn không công khai với cư dân các hoạt động của quỹ Bảo Trì
+
+Do vậy cư dân yêu cầu cung cấp thông tin và yêu cầu chính quyền vào cùng hỗ trợ. Việc thuộc trách nhiệm của ai, vi phạm như thế nào, ai phải bồi thường **thuộc trách nhiệm của các cơ quan chức năng**
+
+## Cụ thể BQT nào có hành vi gì trong việc ngăn cản cư dân ghi âm, chia sẻ cuộc họp, và kích động cư dân ? ##
+
+- Ông Trần Xuân Phương đã gọi bảo vệ dẫn cư dân ra khỏi phòng họp để ngăn chận cư dân chia sẻ nội dung họp
+- Ông Nguyễn Hoàng Minh Triết yêu cầu cư dân phải xin phép Ban Quản Trị trước khi chia sẻ cuộc họp và không đưa các văn bản pháp lý cụ thể về quy định cấm cư dân chia sẻ nội dung họp
+- Ông Nguyễn Văn Triển không đồng ý ghi âm và yêu cầu Ban Quản Lý cùng không đồng ý việc cư dân ghi âm trong cuộc họp.
+- Ông Lawrence Eze Mbanu kích động cư dân qua các hành động đập bàn, giật điện thoại, đụng chạm áp sát, đặt điều bịa chuyện cá nhân và không  giải trình việc vợ ông được quyền thay mặt Ban Quản Trị  phát tán thông tin cá nhân của cư dân ra nhóm công đồng
+
+## Rất khó để BQT cung cấp thông tin cho từng người ##
+Về luật, BQT và BQL có trách nhiệm cung cấp thông tin cho cư dân
+
+Về vận hành nếu BQT thấy khó khăn , em nhờ tập thể cư dân cùng lên tiếng thông qua gửi đơn về các hành vi chưa minh bạch để tập thể cư dân cùng xem xét đánh giá và lấy đồng thuận của tập thể cư dân việc BQT cần cung cấp các giấy tờ liên quan
+
+## BQT không thể hỏi ý kiến cư dân từng vấn đề được vì sẽ làm cản trở các hoạt động vận hành ##
+1. Cần phân biệt rõ cái gì luật yêu cầu thuộc thẩm quyền của tập thể cư dân quyết định. Luật không quy định thay 1 con ốc cũng phải hỏi ý kiến cư dân
+2. Không thể tráo khái niệm việc cư dân yêu cầu minh bạch thành cư dân yêu cầu từng việc trong quản lý vận hành phải báo cáo được.Như vậy chúng ta thuê BQL làm gì ? 
+3. Pháp luật Việt Nam là trên hết, không thể vì lý do luật quá phiền hà mà bỏ không theo luật được
+4. Cần kiểm tra lại xem BQT đã hoàn tất khóa học quản lý chung cư chưa. Nếu đã hoàn thành chắc chắn sẽ được biết vai trò và trách nhiệm của BQT
+
+# NỘI DUNG ĐƠN KIẾN NGHỊ
 ## Đơn kiến nghị này dựa trên những căn cứ pháp lý nào? ##
 
 Đơn kiến nghị này dựa trên nhiều căn cứ pháp lý, bao gồm: 
@@ -43,36 +93,6 @@ Do vậy cư dân đưa lên các hành vi sai phạm và yêu cầu cơ quan ch
 - Không công khai trách nhiệm và quyền hạn từng thành viên trong việc kiểm tra, giám sát, nghiệm thu dẫn đến dễ có các tranh chấp về việc ai chịu trách nhiệm phần nào.
 - Đề xuất sử dụng Quỹ Bảo trì sai nguyên tắc, khi muốn chi cho các hạng mục thuộc Quỹ Vận hành hoặc các khu vực sở hữu khác nhau mà không chia rõ tỷ lệ kinh phí.
 
-## Ảnh hưởng của việc sử dụng sai quỹ Bảo Trì như thế nào? ##
-
-Chi phí quỹ Bảo Trì được thu từ 2% chi phí đóng góp ban đầu. Một khi chi phí này sử dụng hết, các cư dân phải đóng lại từ đầu. Do vậy, chi phí này cần được kiểm soát chặt chẽ và chi tiêu theo đúng quy định pháp luật.
-
-## Quỹ bảo trì có được dùng cho mục đích khác nếu được Hội nghị nhà chung cư biểu quyết thông qua không? ##
-
-Quy định pháp luật là trên hết. Nếu cư dân biểu quyết sai do BQT cung cấp thông tin sai, phải tiến hành phủ quyết và yêu cầu cơ quan chức năng xem xét các hoạt động quản lý, sử dụng quỹ Bảo Trì không đúng quy định.
-
-Tham khảo: [https://soxaydung.hochiminhcity.gov.vn/tuyen-dung/-/asset_publisher/hoKTpfr7khKO/content/tra-loi-cau-hoi-cua-ong-huynh-thien-bao-hoi-ve-quy-bao-tri-co-uoc-dung-cho-muc-ich-khac-neu-uoc-hoi-nghi-nha-chung-cu-bieu-quyet-thong-qua-](https://soxaydung.hochiminhcity.gov.vn/tuyen-dung/-/asset_publisher/hoKTpfr7khKO/content/tra-loi-cau-hoi-cua-ong-huynh-thien-bao-hoi-ve-quy-bao-tri-co-uoc-dung-cho-muc-ich-khac-neu-uoc-hoi-nghi-nha-chung-cu-bieu-quyet-thong-qua-)
-
-## BQT rất bận, làm sao có đủ thời gian cung cấp và lấy ý kiến hết tất cả cư dân cho việc sử dụng quỹ Bảo Trì? ##
-
-Trách nhiệm của BQT trong việc sử dụng quỹ Bảo Trì là kiểm tra, giám sát, nghiệm thu.
-
-Các công việc này phải được cư dân đồng ý giao phó, phải có tên thành viên phân công công việc và cam kết chịu trách nhiệm cụ thể cho những tranh chấp sau này.
-
-BQT không có quyền quyết thay cư dân, và cũng không có quyền làm hộ các công việc của các bên chuyên về quản lý vận hành và bảo trì.
-
-Do vậy, lý do vì bận, vì nhiều việc mà không lấy ý kiến cư dân, không báo cáo, thay đổi nội dung cư dân biểu quyết trong các hoạt động sử dụng quỹ Bảo Trì là các hành vi không đúng pháp luật.
-
-## BQT có thông báo, có cung cấp thông tin nhưng cư dân không xuống hoặc không xem thì sao? ##
-
-Cần kiểm tra lại BQT đã cung cấp cái gì, số liệu và nội dung có đầy đủ chưa. Nếu BQT tự tin đã hoàn thành trách nhiệm thì không có gì lo lắng trong việc tập thể cư dân yêu cầu minh bạch thông tin và yêu cầu thanh tra kiểm tra.
-
-## Cách khắc phục những vấn đề là gì? ##
-
-Trước hết, phải kiểm tra toàn bộ các công việc BQT 2023-2026 đã làm, tìm ra các vấn đề chưa đúng pháp luật.
-
-Chỉ khi cư dân biết được quy trình không đúng luật chỗ nào thì mới có phương án thay đổi. Không thể đưa thuốc khi không biết bệnh.
-
 ## Đưa thông tin ầm ĩ như vậy sẽ làm giảm giá nhà và các BQT / BQL tốt không vào? ##
 
 Gần như tất cả các chung cư tại Sài Gòn đều phải trải qua quá trình này mới trở nên minh bạch và tốt hơn. Một khi môi trường quản lý căn hộ tốt, các cư dân năm luật, có quy định và giám sát chặt chẽ thì không lo không có BQT / BQL tốt hoặc giá nhà hạ như câu thành ngữ thường nói "đất lành chim đậu".
@@ -81,32 +101,13 @@ Xem các bài viết về vấn đề này:
 - [https://www.facebook.com/share/p/16MNKWccQ7/](https://www.facebook.com/share/p/16MNKWccQ7/)
 - [https://www.facebook.com/share/p/16XRZW6mC1/](https://www.facebook.com/share/p/16XRZW6mC1/)
 
-
 Cư dân có thể đi vòng quanh tham khảo các chung cư từng yêu cầu minh bạch thông tin sau khi **làm dứt điểm và kiểm tra lại toàn bộ quy trình và hiện trạng** đều có những thay đổi tích cực
-
-## Tại sao không đợi BQT hiện tại hết nhiệm kỳ rồi lúc đó ứng cử vào sẽ có đầy đủ thông tin? ##
-
-Nếu không yêu cầu minh bạch từ bây giờ, không cải tổ và kiểm tra lại quy trình ngay khi có các dấu hiệu vi phạm thì tất cả các đời BQT về sau đều cũng sẽ bị chung 1 vấn đề cho tới khi hết quỹ.
-
-Bằng chứng là việc rất nhiều lần các BQT mới lên hứa hẹn kiểm tra và rà soát lại quy trình nhưng đều không có động thái rà soát, minh bạch thông tin, đảm bảo thực thi đúng pháp luật.
-
-Tất cả cư dân có quyền tiếp cận thông tin, và nếu một tập thể cư dân thấy vấn đề này là cần thiết thì chúng ta có quyền cùng ký đơn và đưa kiến nghị.
 
 ## Ký đơn chắc gì chính quyền sẽ có động thái? ##
 
-Nếu không bắt đầu, chúng ta sẽ không biết sẽ đi về đâu. Do vậy, cần phải bắt đầu càng sớm càng tốt, và để các cư dân hiểu vấn đề cấp bách của quỹ Bảo Trì để không tiếp tục duyệt sai, cùng tham gia kiểm soát và yêu cầu minh bạch thông tin trong HNNCC.
+Nếu không bắt đầu, chúng ta sẽ không biết sẽ đi về đâu. Do vậy, cần phải bắt đầu càng sớm càng tốt và để các cư dân hiểu vấn đề cấp bách của quỹ Bảo Trì để không tiếp tục duyệt sai, cùng tham gia kiểm soát và yêu cầu minh bạch thông tin trong HNNCC.
 
-## Rất nhiều vấn đề trong đơn thuộc vấn đề của BQT cũ và đã tồn đọng rất lâu chứ không phải do BQT và BQL mới ##
-
-BQT hiện tại đã hoạt động gần 1.5 năm / nhiệm kỳ 3 năm. Tuy nhiên BQT không hề có bất kì động thái nào kiểm tra lại toàn bộ quy trình xem lỗ hổng ở đâu, cách khắc phục và hoàn toàn không công khai với cư dân các hoạt động của quỹ Bảo Trì
-
-Do vậy cư dân yêu cầu cung cấp thông tin và yêu cầu chính quyền vào cùng hỗ trợ. Việc thuộc trách nhiệm của ai, vi phạm như thế nào, ai phải bồi thường **thuộc trách nhiệm của các cơ quan chức năng**
-## Cụ thể BQT nào có hành vi gì trong việc ngăn cản cư dân ghi âm, chia sẻ cuộc họp, và kích động cư dân ? ##
-
-- Ông Trần Xuân Phương đã gọi bảo vệ dẫn cư dân ra khỏi phòng họp để ngăn chận cư dân chia sẻ nội dung họp
-- Ông Nguyễn Hoàng Minh Triết yêu cầu cư dân phải xin phép Ban Quản Trị trước khi chia sẻ cuộc họp và không đưa các văn bản pháp lý cụ thể về quy định cấm cư dân chia sẻ nội dung họp
-- Ông Nguyễn Văn Triển không đồng ý ghi âm và yêu cầu Ban Quản Lý cùng không đồng ý việc cư dân ghi âm trong cuộc họp.
-- Ông Lawrence Eze Mbanu kích động cư dân qua các hành động đập bàn, giật điện thoại, đụng chạm áp sát, đặt điều bịa chuyện cá nhân và không  giải trình việc vợ ông được quyền thay mặt Ban Quản Trị  phát tán thông tin cá nhân của cư dân ra nhóm công đồng
+Em rất tha thiết mong các cư dân cùng hỗ trợ và vận động các hàng xóm cùng đọc đơn, đọc FAQ này và kí đơn kiến nghị yêu cầu cung cấp thông tin và làm rõ trách các hành vi vi phạm pháp luật 
 
 ## Đây có phải là đơn tố cáo Ban Quản Trị? ##
 
@@ -117,21 +118,29 @@ Xin khẳng định đơn này HOÀN TOÀN KHÔNG LIÊN QUAN tới việc yêu c
 
 Đây là đơn kiến nghị chính quyền vào cuộc yêu cầu cung cấp thông tin vì cư dân không được cung cấp thông tin và thời gian qua đã xảy ra rất nhiều vấn đề khuất tất, hành vi lạm quyền
 
-## Rất khó để BQT cung cấp thông tin cho từng người ##
-Về luật, Có thể, và do vậy tôi gửi đơn về các hành vi chưa minh bạch để tập thể cư dân cùng xem xét đánh giá và lấy đồng thuận của tập thể cư dân việc BQT cần cung cấp các giấy tờ liên quan
-
-## BQT không thể hỏi ý kiến cư dân từng vấn đề được vì sẽ làm cản trở các hoạt động vận hành ##
-1. Cần phân biệt rõ cái gì luật yêu cầu thuộc thẩm quyền của tập thể cư dân quyết định. Luật không quy định thay 1 con ốc cũng phải hỏi ý kiến cư dân
-2. Không thể tráo khái niệm việc cư dân yêu cầu minh bạch thành cư dân yêu cầu từng việc trong quản lý vận hành phải báo cáo được.Như vậy chúng ta thuê BQL làm gì ? 
-3. Pháp luật Việt Nam là trên hết, không thể vì lý do luật quá phiền hà mà bỏ không theo luật được
-4. Cần kiểm tra lại xem BQT đã hoàn tất khóa học quản lý chung cư chưa. Nếu đã hoàn thành chắc chắn sẽ được biết vai trò và trách nhiệm của BQT
 
 ## Các thành viên đưa đơn này lên có đang gây cản trở cho hoạt động của BQT 
 - Không thể gọi việc cư dân yêu cầu quyền lợi được pháp luật bảo hộ là gây cản trở được, đặc biệt khi cư dân đã để cho BQT 1.5 năm / 3 năm nhiệm kì để thực hiện lời hứa khi bầu chọn
 - Cư dân nên chú ý tình trạng [đánh lạc hướng và thao túng thông tin](https://www.facebook.com/share/p/1CXUkWcf8h/) các chung cư khác đã trải qua nhằm dập các yêu cầu minh bạch thông tin của tập thể cư dân
 
+#QUỸ BẢO TRÌ
+## Ảnh hưởng của việc sử dụng sai quỹ Bảo Trì như thế nào? ##
+
+Chi phí quỹ Bảo Trì được thu từ 2% chi phí đóng góp ban đầu. Một khi chi phí này sử dụng hết, các cư dân phải đóng lại từ đầu. Do vậy, chi phí này cần được kiểm soát chặt chẽ và chi tiêu theo đúng quy định pháp luật.
+
+## Quỹ bảo trì có được dùng cho mục đích khác nếu được Hội nghị nhà chung cư biểu quyết thông qua không? ##
+
+Quy định pháp luật là trên hết. Nếu cư dân biểu quyết sai do BQT cung cấp thông tin sai, phải tiến hành phủ quyết và yêu cầu cơ quan chức năng xem xét các hoạt động quản lý, sử dụng quỹ Bảo Trì không đúng quy định.
+
+Tham khảo: [https://soxaydung.hochiminhcity.gov.vn/tuyen-dung/-/asset_publisher/hoKTpfr7khKO/content/tra-loi-cau-hoi-cua-ong-huynh-thien-bao-hoi-ve-quy-bao-tri-co-uoc-dung-cho-muc-ich-khac-neu-uoc-hoi-nghi-nha-chung-cu-bieu-quyet-thong-qua-](https://soxaydung.hochiminhcity.gov.vn/tuyen-dung/-/asset_publisher/hoKTpfr7khKO/content/tra-loi-cau-hoi-cua-ong-huynh-thien-bao-hoi-ve-quy-bao-tri-co-uoc-dung-cho-muc-ich-khac-neu-uoc-hoi-nghi-nha-chung-cu-bieu-quyet-thong-qua-)
+
+## Cách khắc phục những vấn đề là gì? ##
+
+Trước hết, phải kiểm tra toàn bộ các công việc BQT 2023-2026 đã làm, tìm ra các vấn đề chưa đúng pháp luật.
+
+Chỉ khi cư dân biết được quy trình không đúng luật chỗ nào thì mới có phương án thay đổi. Không thể đưa thuốc khi không biết bệnh.
+
 ## Có đúng là cư dân không phải chủ sỡ hữu có được quyền ký đơn ?
 Hiện tại yếu tố pháp lý chưa đặt nặng việc yêu cầu phải chứng minh là chủ sở hữu mới được quyền ký đơn
 
 Những cư dân đang ở thuê , có hợp đồng thuê, người gia đình ở chung căn hộ vẫn được kí , vì các cư dân này đang trả tiền và hưởng mọi dịch vụ ở đây nên có quyền lên tiếng. Việc này cũng được quy định trong nội quy và quy chế
-
