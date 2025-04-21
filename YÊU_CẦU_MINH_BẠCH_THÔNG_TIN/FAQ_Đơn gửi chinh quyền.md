@@ -11,12 +11,6 @@ Thêm nữa công tác báo cáo và sử dụng quỹ không đúng theo quy đ
 
 Các cư dân đã làm việc ôn hòa với BQT từ khi bắt đầu nhiệm kì nhưng liên tục gặp các vấn đề ngăn chặn, ngăn cấm tiếp cận thông tin , không được giải quyết và phớt lờ yêu cầu, cùng với các hành vi vi phạm pháp luật và không tuân thủ các quy định
 
-Ngày 19/4/2025 BQT tiếp tục đưa ra văn bản số 12.04.2025/TB_BQT và văn bản 11.042025 ghi không cung cấp được các tài liệu có tính bảo mật hợp đồng. Hành động này vi phạm nguyên tắc BQT không phải là 1 tổ chức doanh nghiệp và do vậy, nội dung kí kết không có tính bảo mật thương mại. 
-
-Các nội dung cư dân yêu cầu xem như hồ sơ gốc từ Capital Land và biên bản họp HNNCC đầu tiên vẫn bị báo là không biết cư dân yêu cầu thông tin nào dù trước đó đã ghi rõ trong đơn các vấn đề này 
-
-Cư dân tiếp tục không nhận được nội dung tiếp cận các sao kê ngân hàng của quỹ bảo trì , báo cáo quỹ bảo trì qua các tháng dựa trên cơ sở pháp lý yêu cầu minh bạch thông tin
-
 Do vậy cư dân đưa lên các hành vi sai phạm và yêu cầu cơ quan chức năng vào kiểm tra 
 
 ## BQT rất bận, làm sao có đủ thời gian cung cấp và lấy ý kiến hết tất cả cư dân cho việc sử dụng quỹ Bảo Trì? ##
@@ -33,6 +27,13 @@ Do vậy, lý do vì bận, vì nhiều việc mà không lấy ý kiến cư d�
 ## Có phải BQT có thông báo, có cung cấp thông tin nhưng cư dân không xuống hoặc không xem? ##
 
 Cần kiểm tra lại BQT đã cung cấp cái gì, số liệu và nội dung có đầy đủ chưa, thông báo nội dung gì và BQL có thực hiện không?
+
+Ngày 19/4/2025 BQT tiếp tục đưa ra văn bản số 12.04.2025/TB_BQT và văn bản 11.042025 ghi không cung cấp được các tài liệu có tính bảo mật hợp đồng. Hành động này vi phạm nguyên tắc BQT không phải là 1 tổ chức doanh nghiệp và do vậy, nội dung kí kết không có tính bảo mật thương mại. 
+
+Các nội dung cư dân yêu cầu xem như hồ sơ gốc từ Capital Land và biên bản họp HNNCC đầu tiên vẫn bị báo là không biết cư dân yêu cầu thông tin nào dù trước đó đã ghi rõ trong đơn các vấn đề này 
+
+Cư dân tiếp tục không nhận được nội dung tiếp cận các sao kê ngân hàng của quỹ bảo trì , báo cáo quỹ bảo trì qua các tháng dựa trên cơ sở pháp lý yêu cầu minh bạch thông tin
+
 Nếu BQT tự tin đã hoàn thành trách nhiệm thì không có gì lo lắng trong việc tập thể cư dân đưa lên các hành vi vi phạm các điều khoản và yêu cầu thanh tra kiểm tra.
 
 ## Tại sao không đợi BQT hiện tại hết nhiệm kỳ rồi lúc đó ứng cử vào sẽ có đầy đủ thông tin? ##
