@@ -58,9 +58,9 @@ Do vậy cư dân yêu cầu cung cấp thông tin và yêu cầu chính quyền
 - Ông Lawrence Eze Mbanu kích động cư dân qua các hành động đập bàn, giật điện thoại, đụng chạm áp sát, đặt điều bịa chuyện cá nhân và không  giải trình việc vợ ông được quyền thay mặt Ban Quản Trị  phát tán thông tin cá nhân của cư dân ra nhóm công đồng
 
 ## Rất khó để BQT cung cấp thông tin cho từng người ##
-Về luật, BQT và BQL có trách nhiệm cung cấp thông tin cho cư dân
+Về luật, BQT và BQL có trách nhiệm cung cấp thông tin cho cư dân. BQT là pháp nhân do cư dân bầu ra đại diện cho quyền lợi của cư dân do vậy nếu bqt từ chối cung cấp thông tin vui lòng cho biết viện dẫn luật nào.
 
-Về vận hành nếu BQT thấy khó khăn , em nhờ tập thể cư dân cùng lên tiếng thông qua gửi đơn về các hành vi chưa minh bạch để tập thể cư dân cùng xem xét đánh giá và lấy đồng thuận của tập thể cư dân việc BQT cần cung cấp các giấy tờ liên quan
+Về vận hành nếu BQT thấy khó khăn , em nhờ tập thể cư dân cùng lên tiếng thông qua gửi đơn về các hành vi chưa minh bạch để tập thể cư dân cùng xem xét đánh giá và lấy đồng thuận của tập thể cư dân để yêu cầu chính quyền can thiệp
 
 ## BQT không thể hỏi ý kiến cư dân từng vấn đề được vì sẽ làm cản trở các hoạt động vận hành ##
 1. Cần phân biệt rõ cái gì luật yêu cầu thuộc thẩm quyền của tập thể cư dân quyết định. Luật không quy định thay 1 con ốc cũng phải hỏi ý kiến cư dân
