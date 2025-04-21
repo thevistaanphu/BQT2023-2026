@@ -1,11 +1,23 @@
 # Câu Hỏi Thường Gặp (FAQ) trong lá đơn gửi tới chính quyền 
 
+# BAN QUẢN TRỊ  
 ## Tại sao cư dân The Vista lại làm đơn kiến nghị này? ##
 
 Cư dân làm đơn kiến nghị này vì đã phát sinh nhiều vấn đề bất cập trong việc sử dụng quỹ bảo trì và quỹ vận hành. Ban Quản Trị (BQT) nhiệm kỳ 2023-2026 đã không xem xét và khắc phục các quy định sai pháp luật tồn đọng, dẫn đến lo ngại về tính minh bạch tài chính
 
 Thêm nữa công tác báo cáo và sử dụng quỹ không đúng theo quy định pháp luật, không công khai và giải trình cụ thể. Chi phí quản lý tăng nhưng chất lượng đi xuống và các hành vi lạm quyền dẫn đến cư dân nghi ngờ các vấn đề khuất tất. Cư dân đã nhiều lần yêu cầu BQT cung cấp thông tin liên quan đến việc sử dụng quỹ nhưng không được phản hồi, do vậy cư dân buộc phải yêu cầu chính quyền can thiệp
 
+## Tại sao không làm việc với ban quản trị và tìm cách giải quyết vấn đề một cách ôn hòa mà lại đưa đơn ?
+
+Các cư dân đã làm việc ôn hòa với BQT từ khi bắt đầu nhiệm kì nhưng liên tục gặp các vấn đề ngăn chặn, ngăn cấm tiếp cận thông tin , không được giải quyết và phớt lờ yêu cầu
+
+Ngày 19/4/2025 BQT tiếp tục đưa ra văn bản số 12.04.2025/TB_BQT và văn bản 11.042025 ghi không cung cấp được các tài liệu có tính bảo mật hợp đồng. Hành động này vi phạm nguyên tắc BQT không phải là 1 tổ chức doanh nghiệp và do vậy, nội dung kí kết không có tính bảo mật thương mại. 
+
+Các nội dung cư dân yêu cầu xem như hồ sơ gốc từ Capital Land và biên bản họp HNNCC đầu tiên vẫn bị báo là không biết cư dân yêu cầu thông tin nào dù trước đó đã ghi rõ trong đơn các vấn đề này 
+
+Cư dân tiếp tục không nhận được nội dung tiếp cận các sao kê ngân hàng của quỹ bảo trì , báo cáo quỹ bảo trì qua các tháng dựa trên cơ sở pháp lý yêu cầu minh bạch thông tin
+
+Do vậy cư dân đưa lên các hành vi sai phạm và yêu cầu cơ quan chức năng vào kiểm tra 
 ## Đơn kiến nghị này dựa trên những căn cứ pháp lý nào? ##
 
 Đơn kiến nghị này dựa trên nhiều căn cứ pháp lý, bao gồm: 
@@ -106,7 +118,7 @@ Xin khẳng định đơn này HOÀN TOÀN KHÔNG LIÊN QUAN tới việc yêu c
 Đây là đơn kiến nghị chính quyền vào cuộc yêu cầu cung cấp thông tin vì cư dân không được cung cấp thông tin và thời gian qua đã xảy ra rất nhiều vấn đề khuất tất, hành vi lạm quyền
 
 ## Rất khó để BQT cung cấp thông tin cho từng người ##
-Có thể, và do vậy tôi gửi đơn về các hành vi chưa minh bạch để tập thể cư dân cùng xem xét đánh giá và lấy đồng thuận của tập thể cư dân việc BQT cần cung cấp các giấy tờ liên quan
+Về luật, Có thể, và do vậy tôi gửi đơn về các hành vi chưa minh bạch để tập thể cư dân cùng xem xét đánh giá và lấy đồng thuận của tập thể cư dân việc BQT cần cung cấp các giấy tờ liên quan
 
 ## BQT không thể hỏi ý kiến cư dân từng vấn đề được vì sẽ làm cản trở các hoạt động vận hành ##
 1. Cần phân biệt rõ cái gì luật yêu cầu thuộc thẩm quyền của tập thể cư dân quyết định. Luật không quy định thay 1 con ốc cũng phải hỏi ý kiến cư dân
