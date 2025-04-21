@@ -28,9 +28,11 @@ Do vậy, lý do vì bận, vì nhiều việc mà không lấy ý kiến cư d�
 
 Cần kiểm tra lại BQT đã cung cấp cái gì, số liệu và nội dung có đầy đủ chưa, thông báo nội dung gì và BQT/BQL có thực hiện như không?
 
-Ngày 19/4/2025 ông Llyod xuống cuộc họp BQT hỏi về nội dung yêu cầu nhưng BQT và BQL không cung cấp, thay vào đó BQT và BQL tiếp tục đưa ra văn bản số 12.04.2025/TB_BQT và văn bản 11.042025 đùn đẩy trách nhiệm qua lại và không đáp ứng nội dung cư dân yêu cầu cung cấp. Đặc biệt trong nội dung văn bản này có ghi "không cung cấp được các tài liệu có tính bảo mật hợp đồng". Hành động này vi phạm nguyên tắc BQT không phải là 1 tổ chức doanh nghiệp và do vậy, nội dung kí kết không có tính bảo mật thương mại. 
+Ngày 19/4/2025 ông Llyod xuống cuộc họp BQT hỏi về nội dung yêu cầu nhưng BQT và BQL không cung cấp, thay vào đó BQT và BQL tiếp tục đưa ra văn bản số 12.04.2025/TB_BQT và văn bản 11.042025 đùn đẩy trách nhiệm qua lại và không đáp ứng nội dung cư dân yêu cầu cung cấp. Đặc biệt trong nội dung văn bản này có nội dung " hồ sơ có hướng dẫn công khai và có tính bảo mật hợp đồng"
 
-Các nội dung cư dân yêu cầu xem như hồ sơ gốc từ Capital Land và biên bản họp HNNCC đầu tiên vẫn bị báo là không biết cư dân yêu cầu thông tin nào dù trước đó đã ghi rõ trong đơn các vấn đề này 
+Hành động này vi phạm nguyên tắc BQT không phải là 1 tổ chức doanh nghiệp và do vậy, nội dung kí kết không có tính bảo mật thương mại. BQT là pháp nhân **do cư dân bầu ra đại diện cho quyền lợi của cư dân** . Do vậy nếu bqt từ chối cung cấp thông tin vui lòng cho biết viện dẫn luật nào?
+
+Các nội dung cư dân yêu cầu đã được ghi trong đơn gửi đầu tiên nhưng vẫn bị báo là không biết cư dân yêu cầu thông tin nào dù trước đó đã ghi rõ trong đơn các vấn đề này 
 
 Cư dân tiếp tục không nhận được nội dung tiếp cận các sao kê ngân hàng của quỹ bảo trì , báo cáo quỹ bảo trì qua các tháng dựa trên cơ sở pháp lý yêu cầu minh bạch thông tin
 
