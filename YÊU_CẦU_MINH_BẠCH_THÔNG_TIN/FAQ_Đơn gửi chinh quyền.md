@@ -123,7 +123,7 @@ Xin khẳng định đơn này HOÀN TOÀN KHÔNG LIÊN QUAN tới việc yêu c
 - Không thể gọi việc cư dân yêu cầu quyền lợi được pháp luật bảo hộ là gây cản trở được, đặc biệt khi cư dân đã để cho BQT 1.5 năm / 3 năm nhiệm kì để thực hiện lời hứa khi bầu chọn
 - Cư dân nên chú ý tình trạng [đánh lạc hướng và thao túng thông tin](https://www.facebook.com/share/p/1CXUkWcf8h/) các chung cư khác đã trải qua nhằm dập các yêu cầu minh bạch thông tin của tập thể cư dân
 
-#QUỸ BẢO TRÌ
+# QUỸ BẢO TRÌ
 ## Ảnh hưởng của việc sử dụng sai quỹ Bảo Trì như thế nào? ##
 
 Chi phí quỹ Bảo Trì được thu từ 2% chi phí đóng góp ban đầu. Một khi chi phí này sử dụng hết, các cư dân phải đóng lại từ đầu. Do vậy, chi phí này cần được kiểm soát chặt chẽ và chi tiêu theo đúng quy định pháp luật.
