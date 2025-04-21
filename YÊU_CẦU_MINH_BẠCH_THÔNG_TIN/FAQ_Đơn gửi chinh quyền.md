@@ -28,7 +28,7 @@ Do vậy, lý do vì bận, vì nhiều việc mà không lấy ý kiến cư d�
 
 Cần kiểm tra lại BQT đã cung cấp cái gì, số liệu và nội dung có đầy đủ chưa, thông báo nội dung gì và BQT/BQL có thực hiện như không?
 
-Ngày 19/4/2025 ông Llyod xuống cuộc họp BQT hỏi về nội dung yêu cầu nhưng BQT và BQL không cung cấp, thay vào đó BQT và BQL tiếp tục đưa ra văn bản số 12.04.2025/TB_BQT và văn bản 11.042025 ghi không cung cấp được các tài liệu có tính bảo mật hợp đồng. Hành động này vi phạm nguyên tắc BQT không phải là 1 tổ chức doanh nghiệp và do vậy, nội dung kí kết không có tính bảo mật thương mại. 
+Ngày 19/4/2025 ông Llyod xuống cuộc họp BQT hỏi về nội dung yêu cầu nhưng BQT và BQL không cung cấp, thay vào đó BQT và BQL tiếp tục đưa ra văn bản số 12.04.2025/TB_BQT và văn bản 11.042025 đùn đẩy trách nhiệm qua lại. Đặc biệt trong nội dung văn bản này có ghi "không cung cấp được các tài liệu có tính bảo mật hợp đồng". Hành động này vi phạm nguyên tắc BQT không phải là 1 tổ chức doanh nghiệp và do vậy, nội dung kí kết không có tính bảo mật thương mại. 
 
 Các nội dung cư dân yêu cầu xem như hồ sơ gốc từ Capital Land và biên bản họp HNNCC đầu tiên vẫn bị báo là không biết cư dân yêu cầu thông tin nào dù trước đó đã ghi rõ trong đơn các vấn đề này 
 
