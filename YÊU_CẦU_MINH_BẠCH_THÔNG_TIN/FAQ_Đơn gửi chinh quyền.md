@@ -64,11 +64,23 @@ Về luật, BQT và BQL có trách nhiệm cung cấp thông tin cho cư dân. 
 
 Về vận hành nếu BQT thấy khó khăn , em nhờ tập thể cư dân cùng lên tiếng thông qua gửi đơn về các hành vi chưa minh bạch để tập thể cư dân cùng xem xét đánh giá và lấy đồng thuận của tập thể cư dân để yêu cầu chính quyền can thiệp
 
+
 ## BQT không thể hỏi ý kiến cư dân từng vấn đề được vì sẽ làm cản trở các hoạt động vận hành ##
 1. Cần phân biệt rõ cái gì luật yêu cầu thuộc thẩm quyền của tập thể cư dân quyết định. Luật không quy định thay 1 con ốc cũng phải hỏi ý kiến cư dân
 2. Không thể tráo khái niệm việc cư dân yêu cầu minh bạch thành cư dân yêu cầu từng việc trong quản lý vận hành phải báo cáo được.Như vậy chúng ta thuê BQL làm gì ? 
 3. Pháp luật Việt Nam là trên hết, không thể vì lý do luật quá phiền hà mà bỏ không theo luật được
 4. Cần kiểm tra lại xem BQT đã hoàn tất khóa học quản lý chung cư chưa. Nếu đã hoàn thành chắc chắn sẽ được biết vai trò và trách nhiệm của BQT
+
+## Mình thấy BQT 2023-2026 có các hoạt động tu bổ, sửa chữa các hạt mục thiết yếu như camera, sàn lót hồ bơi sau nhiều năm nằm đó ko bên nào tiến hành
+
+Việc sửa chữa, tu bổ là tốt nhưng cần phải làm rõ :
+
+Về kỹ thuật: phải có kế hoạch cụ thể việc thay được khuyến nghị do đâu, cụ thể lỗi như thế nào, xác lập rủi ro hay nguy cơ và dựa trên tài liệu nào, kiểm tra thật kĩ mới tiến hành thay thế 
+
+Về tài chính : phải xác minh ai là người chịu trách nhiệm chi trả , tại sao dựa vào căn cứ pháp lý nào, nguồn tiền được lấy từ đâu, công tác quản lý quỹ bảo trì trong năm như thế nào. Hạng mục thuộc quỹ bảo trì hay quỹ vận hành
+
+QUỸ BẢO TRÌ LÀ CỘT SỐNG CỦA CHUNG CƯ VÀ DO VẬY KHÔNG THỂ NÓI CỨ XUỐNG CẤP, LÂU CHƯA THAY LÀ PHẢI THAY . Luật nhà ở 2023 quy định nếu kinh phí bảo trì phần sở hữu chung của nhà chung cư không đủ để thực hiện việc bảo trì thì các chủ sở hữu nhà chung cư có trách nhiệm đóng góp thêm kinh phí tương ứng với phần diện tích thuộc sở hữu riêng của từng chủ sở hữu -> Do vậy việc chi đúng kỹ thuật, chi đúng mục đích phải là trên hết
+
 
 # NỘI DUNG ĐƠN KIẾN NGHỊ
 ## Đơn kiến nghị này dựa trên những căn cứ pháp lý nào? ##
