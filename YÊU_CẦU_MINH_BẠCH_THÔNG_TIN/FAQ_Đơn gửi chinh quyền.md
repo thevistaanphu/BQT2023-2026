@@ -75,9 +75,9 @@ Về vận hành nếu BQT thấy khó khăn , em nhờ tập thể cư dân cù
 
 Việc sửa chữa, tu bổ là tốt nhưng cần phải làm rõ :
 
-Về kỹ thuật: phải có kế hoạch cụ thể việc thay được khuyến nghị do đâu, cụ thể lỗi như thế nào, xác lập rủi ro hay nguy cơ và dựa trên tài liệu nào, kiểm tra thật kĩ mới tiến hành thay thế 
+1. Về kỹ thuật: phải có kế hoạch cụ thể việc thay được khuyến nghị do đâu, cụ thể lỗi như thế nào, xác lập rủi ro hay nguy cơ và dựa trên tài liệu nào, kiểm tra thật kĩ mới tiến hành thay thế 
 
-Về tài chính : phải xác minh ai là người chịu trách nhiệm chi trả , tại sao dựa vào căn cứ pháp lý nào, nguồn tiền được lấy từ đâu, công tác quản lý quỹ bảo trì trong năm như thế nào. Hạng mục thuộc quỹ bảo trì hay quỹ vận hành
+2. Về tài chính : phải xác minh ai là người chịu trách nhiệm chi trả , tại sao dựa vào căn cứ pháp lý nào, nguồn tiền được lấy từ đâu, công tác quản lý quỹ bảo trì trong năm như thế nào. Hạng mục thuộc quỹ bảo trì hay quỹ vận hành
 
 QUỸ BẢO TRÌ LÀ CỘT SỐNG CỦA CHUNG CƯ VÀ DO VẬY KHÔNG THỂ NÓI CỨ XUỐNG CẤP, LÂU CHƯA THAY LÀ PHẢI THAY . Luật nhà ở 2023 quy định nếu kinh phí bảo trì phần sở hữu chung của nhà chung cư không đủ để thực hiện việc bảo trì thì các chủ sở hữu nhà chung cư có trách nhiệm đóng góp thêm kinh phí tương ứng với phần diện tích thuộc sở hữu riêng của từng chủ sở hữu -> Do vậy việc chi đúng kỹ thuật, chi đúng mục đích phải là trên hết
 
