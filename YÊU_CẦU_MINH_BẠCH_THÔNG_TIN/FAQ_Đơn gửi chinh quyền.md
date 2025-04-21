@@ -26,7 +26,7 @@ Do vậy, lý do vì bận, vì nhiều việc mà không lấy ý kiến cư d�
 
 ## Có phải BQT có thông báo, có cung cấp thông tin nhưng cư dân không xuống hoặc không xem? ##
 
-Cần kiểm tra lại BQT đã cung cấp cái gì, số liệu và nội dung có đầy đủ chưa, thông báo nội dung gì và BQL có thực hiện không?
+Cần kiểm tra lại BQT đã cung cấp cái gì, số liệu và nội dung có đầy đủ chưa, thông báo nội dung gì và BQT/BQL có thực hiện như không?
 
 Ngày 19/4/2025 BQT tiếp tục đưa ra văn bản số 12.04.2025/TB_BQT và văn bản 11.042025 ghi không cung cấp được các tài liệu có tính bảo mật hợp đồng. Hành động này vi phạm nguyên tắc BQT không phải là 1 tổ chức doanh nghiệp và do vậy, nội dung kí kết không có tính bảo mật thương mại. 
 
