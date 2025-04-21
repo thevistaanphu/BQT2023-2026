@@ -143,7 +143,7 @@ Trước hết, phải kiểm tra toàn bộ các công việc BQT 2023-2026 đ�
 
 Chỉ khi cư dân biết được quy trình không đúng luật chỗ nào thì mới có phương án thay đổi. Không thể đưa thuốc khi không biết bệnh.
 
-## Có đúng là cư dân không phải chủ sỡ hữu có được quyền ký đơn ?
+## Có đúng là cư dân không phải chủ sỡ hữu vẫn được  ký đơn ?
 Hiện tại yếu tố pháp lý chưa đặt nặng việc yêu cầu phải chứng minh là chủ sở hữu mới được quyền ký đơn
 
 Những cư dân đang ở thuê , có hợp đồng thuê, người gia đình ở chung căn hộ vẫn được kí , vì các cư dân này đang trả tiền và hưởng mọi dịch vụ ở đây nên có quyền lên tiếng. Việc này cũng được quy định trong nội quy và quy chế
