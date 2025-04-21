@@ -30,7 +30,7 @@ Cần kiểm tra lại BQT đã cung cấp cái gì, số liệu và nội dung 
 
 Ngày 19/4/2025 ông Llyod xuống cuộc họp BQT hỏi về nội dung yêu cầu nhưng BQT và BQL không cung cấp, thay vào đó BQT và BQL tiếp tục đưa ra văn bản số 12.04.2025/TB_BQT và văn bản 11.042025 đùn đẩy trách nhiệm qua lại và không đáp ứng nội dung cư dân yêu cầu cung cấp. Đặc biệt trong văn bản trả lời của BQL có nội dung chỉ chia sẻ những "hồ sơ có hướng dẫn yêu cầu công khai và không có tính bảo mật hợp đồng"
 
-Hành động này vi phạm nguyên tắc BQT không phải là 1 tổ chức doanh nghiệp và do vậy, nội dung kí kết không có tính bảo mật thương mại. BQT là pháp nhân ** do cư dân bầu ra đại diện cho quyền lợi của cư dân ** . Do vậy nếu bqt từ chối cung cấp thông tin vui lòng cho biết viện dẫn luật nào?
+Hành động này vi phạm nguyên tắc BQT không phải là 1 tổ chức doanh nghiệp và do vậy, nội dung kí kết không có tính bảo mật thương mại. BQT là pháp nhân __do cư dân bầu ra đại diện cho quyền lợi của cư dân__ . Do vậy nếu bqt từ chối cung cấp thông tin vui lòng cho biết viện dẫn luật nào?
 
 Các nội dung cư dân yêu cầu đã được ghi trong đơn gửi đầu tiên nhưng vẫn bị báo là không biết cư dân yêu cầu thông tin nào dù trước đó đã ghi rõ trong đơn các vấn đề này 
 
