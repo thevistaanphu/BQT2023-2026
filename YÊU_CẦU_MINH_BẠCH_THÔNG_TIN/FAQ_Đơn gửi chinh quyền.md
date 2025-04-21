@@ -81,7 +81,7 @@ Việc sửa chữa, tu bổ là tốt nhưng cần phải làm rõ :
 
 QUỸ BẢO TRÌ LÀ CỘT SỐNG CỦA CHUNG CƯ VÀ DO VẬY KHÔNG THỂ NÓI CỨ XUỐNG CẤP, LÂU CHƯA THAY LÀ PHẢI THAY . Luật nhà ở 2023 quy định nếu kinh phí bảo trì phần sở hữu chung của nhà chung cư không đủ để thực hiện việc bảo trì thì các chủ sở hữu nhà chung cư có trách nhiệm đóng góp thêm kinh phí tương ứng với phần diện tích thuộc sở hữu riêng của từng chủ sở hữu -> Do vậy cư dân cần rất khắt khe với việc sử dụng quỹ Bảo Trì và các hoạt động bảo trì để tránh phải đóng lại chi phí trong tương lai
 
-Quỹ Bảo Trì trong năm 2024 được cư dân duyệt chi khoảng hơn 10 tỷ. Chỉ cần 10% chênh lệch có nghĩa khoảng 1 tỷ của cư dân bị chi trả không đúng mục đích
+Quỹ Bảo Trì trong năm 2024 được cư dân duyệt chi khoảng hơn 10 tỷ. Chỉ cần 10% chênh lệch có nghĩa khoảng 1 tỷ của cư dân bị chi trả không đúng mục đích. Do vậy cư dân cần yêu cầu cung cấp thông tin và làm rõ , và nếu không được đáp ứng cần chính quyền vào cùng kiểm tra
 
 # NỘI DUNG ĐƠN KIẾN NGHỊ
 ## Đơn kiến nghị này dựa trên những căn cứ pháp lý nào? ##
