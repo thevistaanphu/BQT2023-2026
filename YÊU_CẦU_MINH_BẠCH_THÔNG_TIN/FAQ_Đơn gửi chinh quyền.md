@@ -125,6 +125,11 @@ Nếu không bắt đầu, chúng ta sẽ không biết sẽ đi về đâu. Do 
 
 Em rất tha thiết mong các cư dân cùng hỗ trợ và vận động các hàng xóm cùng đọc đơn, đọc FAQ này và kí đơn kiến nghị yêu cầu cung cấp thông tin và làm rõ trách các hành vi vi phạm pháp luật 
 
+## Có đúng là cư dân không phải chủ sỡ hữu vẫn được  ký đơn ?
+Hiện tại yếu tố pháp lý chưa đặt nặng việc yêu cầu phải chứng minh là chủ sở hữu mới được quyền ký đơn
+
+Những cư dân đang ở thuê , có hợp đồng thuê, người gia đình ở chung căn hộ vẫn được kí , vì các cư dân này đang trả tiền và hưởng mọi dịch vụ ở đây nên có quyền lên tiếng. Việc này cũng được quy định trong nội quy và quy chế
+
 ## Đây có phải là đơn tố cáo Ban Quản Trị? ##
 
 Việc truy tố, tố cáo là nhiệm vụ của cơ quan chức năng. Cư dân chỉ đơn giản là thấy có các hành vi không đúng với luật, khuất tất và yêu cầu cung cấp thông tin để làm rõ. Do liên tiếp có các hành vi ngăn chặn thông tin, lạm quyền xảy ra tiếp theo đó nên cư dân yêu cầu chính quyền cùng vào hỗ trợ
@@ -156,7 +161,10 @@ Trước hết, phải kiểm tra toàn bộ các công việc BQT 2023-2026 đ�
 
 Chỉ khi cư dân biết được quy trình không đúng luật chỗ nào thì mới có phương án thay đổi. Không thể đưa thuốc khi không biết bệnh.
 
-## Có đúng là cư dân không phải chủ sỡ hữu vẫn được  ký đơn ?
-Hiện tại yếu tố pháp lý chưa đặt nặng việc yêu cầu phải chứng minh là chủ sở hữu mới được quyền ký đơn
+## Trong nội dung "THE VISTA - THƯ PHẢN HỒI CƯ DÂN" có đề cập đến BQT đã công khai báo cáo audit năm 2024 và sẽ công khai báo cáo kiểm toán năm 2025 trong HNNCC 2025 . Như vậy đã dủ chưa?
 
-Những cư dân đang ở thuê , có hợp đồng thuê, người gia đình ở chung căn hộ vẫn được kí , vì các cư dân này đang trả tiền và hưởng mọi dịch vụ ở đây nên có quyền lên tiếng. Việc này cũng được quy định trong nội quy và quy chế
+1. Báo cáo audit phải dựa trên nguyên tắc hoạt động kiểm toán độc lập. Việc BQT vừa là người giải chi quỹ, vừa là người yêu cầu thuê đơn vị kiểm toán và quyết định nội dung kiểm toán không phải là các hành vi độc lập
+2. Cư dân là người có quyền quyết định thuê đơn vị kiểm toán ( theo thông tư 05/2024)
+3. Đơn vị kiểm toán hiện tại không hề qua công khai chào thầu. Như đã trao đổi trong nhóm cư dân The Vista An Phú , BQT tự sửa trách nhiệm mời thầu kiểm toán thành quyết định công ty kiểm toán
+4. Hiện trách nhiệm của kiểm toán ghi trên báo cáo chỉ thể hiện snapshot thời gian gian bắt đầu và kết thúc của quỹ , không kiểm tra tình hoạt động của quỹ có đúng không pháp luật và quy chế không
+5. Việc thu chi và hoạt động của quỹ phải dựa trên việc công khai , minh bạch ( Luật nhà ở 2023, Thông tư 05/2024) nên không thể nói đợi đến HNNCC mới cung cấp thông tin. Cư dân có thể xem thêm một số đơn kiến nghị và làm rõ từ chung cư khác, khi có thắc mắc về quỹ chính quyền chức năng đều yêu cầu cung cấp tài liệu liên quan và làm rõ trên nguyên tắc minh bạch thông tin chứ không bảo cư dân đợi đến HNNCC mới báo [LINK](https://cand.com.vn/Ban-doc-cand/nhieu-cu-dan-chung-cu-vip-buc-xuc-sau-nhung-hop-dong-mua-sam-tien-ty-i743960/) 
