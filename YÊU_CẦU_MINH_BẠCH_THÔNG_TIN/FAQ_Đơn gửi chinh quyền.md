@@ -9,7 +9,7 @@ Thêm nữa công tác báo cáo và sử dụng quỹ không đúng theo quy đ
 
 ## Tại sao không làm việc với ban quản trị và tìm cách giải quyết vấn đề một cách ôn hòa mà lại đưa đơn ?
 
-Các cư dân đã làm việc ôn hòa với BQT từ khi bắt đầu nhiệm kì nhưng liên tục gặp các vấn đề ngăn chặn, ngăn cấm tiếp cận thông tin , không được giải quyết và phớt lờ yêu cầu
+Các cư dân đã làm việc ôn hòa với BQT từ khi bắt đầu nhiệm kì nhưng liên tục gặp các vấn đề ngăn chặn, ngăn cấm tiếp cận thông tin , không được giải quyết và phớt lờ yêu cầu, cùng với các hành vi vi phạm pháp luật và không tuân thủ các quy định
 
 Ngày 19/4/2025 BQT tiếp tục đưa ra văn bản số 12.04.2025/TB_BQT và văn bản 11.042025 ghi không cung cấp được các tài liệu có tính bảo mật hợp đồng. Hành động này vi phạm nguyên tắc BQT không phải là 1 tổ chức doanh nghiệp và do vậy, nội dung kí kết không có tính bảo mật thương mại. 
 
