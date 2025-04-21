@@ -1,6 +1,6 @@
 # Câu Hỏi Thường Gặp (FAQ) trong lá đơn gửi tới chính quyền 
 
-# BAN QUẢN TRỊ  
+# BAN QUẢN TRỊ  (BQT)
 ## Tại sao cư dân The Vista lại làm đơn kiến nghị này? ##
 
 Cư dân làm đơn kiến nghị này vì đã phát sinh nhiều vấn đề bất cập trong việc sử dụng quỹ bảo trì và quỹ vận hành. Ban Quản Trị (BQT) nhiệm kỳ 2023-2026 đã không xem xét và khắc phục các quy định sai pháp luật tồn đọng, dẫn đến lo ngại về tính minh bạch tài chính
