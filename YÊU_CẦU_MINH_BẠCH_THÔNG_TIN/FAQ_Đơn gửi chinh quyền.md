@@ -145,15 +145,11 @@ Xin khẳng định đơn này HOÀN TOÀN KHÔNG LIÊN QUAN tới việc yêu c
 
 ## Phí quản lý Vista chỉ tăng nhẹ 1 lần duy nhất qua hơn 15 năm vận hành , trong khi đậu xe thì không thu tiền nên đương nhiên chất lượng dịch vụ rất khó khăn đối với BQL
 
-1. Không rõ ràng về “tăng một lần duy nhất”
-Theo nội dung trong đơn kiến nghị, phí quản lý đã bị tăng lên 21.500 VNĐ/m² vào năm 2024 mà không thông qua Hội Nghị Nhà Chung Cư, không có giải trình minh bạch về việc phân bổ chi phí (ví dụ: chi phí bảo vệ tăng từ 230 triệu lên 407 triệu/tháng – tăng 43%)​ trong khi rất nhiều tiện ích và sửa chữa không được phân bổ sử dụng quỹ vận hành theo đúng quy định
+1. Theo nội dung đã viết trong đơn kiến nghị, phí quản lý đã bị tăng lên 21.500 VNĐ/m² vào năm 2024 mà không thông qua Hội Nghị Nhà Chung Cư, không có giải trình minh bạch về việc phân bổ chi phí (ví dụ: chi phí bảo vệ tăng từ 230 triệu lên 407 triệu/tháng – tăng 43%)​ trong khi rất nhiều tiện ích và sửa chữa không được phân bổ sử dụng quỹ vận hành theo đúng quy định
 .
-➡️ Điều này cho thấy có sự thiếu minh bạch và thiếu đồng thuận chứ không phải “tăng nhẹ hợp lý”.
+➡️ Vấn đề cốt lõi của đơn là việc thiếu minh bạch và thiếu đồng thuận cư dân,  hành vi sai pháp luật chứ không phải “tăng nhẹ hợp lý”.
 
-2. BQT hoàn toàn có quyền tăng mạnh phí quản lý nhưng phải đảm bảo tính công khai, minh bạch
-BQT hoàn toàn có quyền đề xuất mức phí hợp lý , kèm theo có nghĩa vụ công khai kế hoạch tài chính, cách phân bổ chi phí, phân vùng nghĩa vụ đóng góp của các khu vực sử dụng hỗn hợp, lấy ý kiến cư dân trước khi điều chỉnh. Việc dịch vụ xuống cấp (vệ sinh, cây xanh, bảo vệ…), kèm theo cam kết và đánh giá chất lượng từ đơn vị Quản Lý Vận Hành
-
-BQT hoàn toàn không tuân thủ các quy trình trên và do vậy cư dân có ý kiến về việc chi phí tăng nhưng không tương xứng với chi phí cư dân đóng​
+2. BQT hoàn toàn có quyền đề xuất mức phí hợp lý , kèm theo có nghĩa vụ công khai kế hoạch tài chính, cách phân bổ chi phí, phân vùng nghĩa vụ đóng góp của các khu vực sử dụng hỗn hợp, lấy ý kiến cư dân trước khi điều chỉnh như luật quy định. Việc dịch vụ xuống cấp (vệ sinh, cây xanh, bảo vệ…),  thiếu sự cam kết và đánh giá chất lượng, thiếu giải trình tài chính , không cung cấp trách nhiệm đóng góp của các chủ sở hữu là hành động không tuân thủ quy định pháp luật, do vậy cư dân có ý kiến về việc chi phí tăng nhưng không minh bạch và thiếu cam kết về kết quả
 
 3. Không có chuyện miễn thu đậu xe cho toàn bộ cư dân
 Thực tế, phần lớn các cư dân đều đã trả phí đậu xe và phí này được cộng vào trong chi phí quản lý đóng hằng tháng.
