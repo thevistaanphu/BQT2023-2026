@@ -93,7 +93,7 @@ Quỹ Bảo Trì trong năm 2024 được cư dân duyệt chi khoảng hơn 10 
 - Nghị định 144/2021/NĐ-CP
 - Luật Doanh nghiệp 2020
 - Nội quy và Quy chế Chung cư The Vista An Phú
-
+- Văn bản hợp nhất 08/VBHN-BXD 2019 
 ## Các vấn đề tài chính tại The Vista là gì? ##
 
 - Vi phạm các nguyên tắc minh bạch thông tin của quỹ Bảo Trì.
@@ -139,10 +139,28 @@ Xin khẳng định đơn này HOÀN TOÀN KHÔNG LIÊN QUAN tới việc yêu c
 
 Đây là đơn kiến nghị chính quyền vào cuộc yêu cầu cung cấp thông tin vì cư dân không được cung cấp thông tin và thời gian qua đã xảy ra rất nhiều vấn đề khuất tất, hành vi lạm quyền
 
-
 ## Các thành viên đưa đơn này lên có đang gây cản trở cho hoạt động của BQT 
 - Không thể gọi việc cư dân yêu cầu quyền lợi được pháp luật bảo hộ là gây cản trở được, đặc biệt khi cư dân đã để cho BQT 1.5 năm / 3 năm nhiệm kì để thực hiện lời hứa khi bầu chọn
 - Cư dân nên chú ý tình trạng [đánh lạc hướng và thao túng thông tin](https://www.facebook.com/share/p/1CXUkWcf8h/) các chung cư khác đã trải qua nhằm dập các yêu cầu minh bạch thông tin của tập thể cư dân
+
+## Phí quản lý Vista chỉ tăng nhẹ 1 lần duy nhất qua hơn 15 năm vận hành , trong khi đậu xe thì không thu tiền nên đương nhiên chất lượng dịch vụ rất khó khăn đối với BQL
+
+1. Không rõ ràng về “tăng một lần duy nhất”
+Theo nội dung trong đơn kiến nghị, phí quản lý đã bị tăng lên 21.500 VNĐ/m² vào năm 2024 mà không thông qua Hội Nghị Nhà Chung Cư, không có giải trình minh bạch về việc phân bổ chi phí (ví dụ: chi phí bảo vệ tăng từ 230 triệu lên 407 triệu/tháng – tăng 43%)​ trong khi rất nhiều tiện ích và sửa chữa không được phân bổ sử dụng quỹ vận hành theo đúng quy định
+.
+➡️ Điều này cho thấy có sự thiếu minh bạch và thiếu đồng thuận chứ không phải “tăng nhẹ hợp lý”.
+
+2. BQT hoàn toàn có quyền tăng mạnh phí quản lý nhưng phải đảm bảo tính công khai, minh bạch
+BQT hoàn toàn có quyền đề xuất mức phí hợp lý , kèm theo có nghĩa vụ công khai kế hoạch tài chính, cách phân bổ chi phí, phân vùng nghĩa vụ đóng góp của các khu vực sử dụng hỗn hợp, lấy ý kiến cư dân trước khi điều chỉnh. Việc dịch vụ xuống cấp (vệ sinh, cây xanh, bảo vệ…), kèm theo cam kết và đánh giá chất lượng từ đơn vị Quản Lý Vận Hành
+
+BQT hoàn toàn không tuân thủ các quy trình trên và do vậy cư dân có ý kiến về việc chi phí tăng nhưng không tương xứng với chi phí cư dân đóng​
+
+4. Không có chuyện miễn thu đậu xe cho toàn bộ cư dân
+Thực tế, phần lớn các cư dân đều đã trả phí đậu xe và phí này được cộng vào trong chi phí quản lý đóng hằng tháng.
+Trước đây khi kêu gọi biểu quyết thu phí đậu xe các cư dân đã yêu cầu nếu thu phí đậu xe thì cũng phải tách bạch phần phí vận hành và bảo trì bãi xe, và do vậy, phải giảm phí đóng hằng tháng xuống . Việc vận hành/bảo trì phải được cân đối trên nguyên tắc sử dụng từ nguồn thu này. 
+
+
+
 
 # QUỸ BẢO TRÌ
 ## Ảnh hưởng của việc sử dụng sai quỹ Bảo Trì như thế nào? ##
