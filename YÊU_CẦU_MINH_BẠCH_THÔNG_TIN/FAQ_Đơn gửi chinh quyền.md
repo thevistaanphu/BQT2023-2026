@@ -155,13 +155,11 @@ BQT hoàn toàn có quyền đề xuất mức phí hợp lý , kèm theo có ng
 
 BQT hoàn toàn không tuân thủ các quy trình trên và do vậy cư dân có ý kiến về việc chi phí tăng nhưng không tương xứng với chi phí cư dân đóng​
 
-4. Không có chuyện miễn thu đậu xe cho toàn bộ cư dân
+3. Không có chuyện miễn thu đậu xe cho toàn bộ cư dân
 Thực tế, phần lớn các cư dân đều đã trả phí đậu xe và phí này được cộng vào trong chi phí quản lý đóng hằng tháng.
 Trước đây khi kêu gọi biểu quyết thu phí đậu xe các cư dân đã yêu cầu nếu thu phí đậu xe thì cũng phải tách bạch phần phí vận hành và bảo trì bãi xe, và do vậy, phải giảm phí đóng hằng tháng xuống . Việc vận hành/bảo trì phải được cân đối trên nguyên tắc sử dụng từ nguồn thu này. 
 
-
-
-
+Trong năm 2024 BQT tự quyết định không tách bạch và cân đối tài chính cho nguồn thu này nên không thể nói cư dân đang được "miễn phí"
 # QUỸ BẢO TRÌ
 ## Ảnh hưởng của việc sử dụng sai quỹ Bảo Trì như thế nào? ##
 
