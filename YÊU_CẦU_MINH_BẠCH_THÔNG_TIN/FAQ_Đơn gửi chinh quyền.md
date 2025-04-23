@@ -182,7 +182,7 @@ Chỉ khi cư dân biết được quy trình không đúng luật chỗ nào th
 4. Hiện trách nhiệm của kiểm toán ghi trên báo cáo chỉ thể hiện snapshot thời gian gian bắt đầu và kết thúc của quỹ , không kiểm tra tình hoạt động của quỹ có đúng không pháp luật và quy chế không
 5. Việc thu chi và hoạt động của quỹ phải dựa trên việc công khai , minh bạch ( Luật nhà ở 2023, Thông tư 05/2024) nên không thể nói đợi đến HNNCC mới cung cấp thông tin. Cư dân có thể xem thêm một số đơn kiến nghị và làm rõ từ chung cư khác, khi có thắc mắc về quỹ chính quyền chức năng đều yêu cầu cung cấp tài liệu liên quan và làm rõ trên nguyên tắc minh bạch thông tin chứ không bảo cư dân đợi đến HNNCC mới báo [LINK](https://cand.com.vn/Ban-doc-cand/nhieu-cu-dan-chung-cu-vip-buc-xuc-sau-nhung-hop-dong-mua-sam-tien-ty-i743960/) 
 
-## Cư dân muốn ký đơn và tìm thông tin nhưng không thấy thông tin trên các khu vực public 
+## Cư dân muốn ký đơn và tìm thông tin nhưng không thấy thông tin trên các khu vực chung 
 Vào ngày 23/4/2025 đã có email tới BQL với nội dung Thông báo các hoạt động lấy chữ ký cư dân để gửi lên chính quyền tại The Vista An Phú
 Các tài liệu sẽ được đặt ở các khu vực có camera an ninh. Bất kì hành vi phá hoại và gây cản chở công tác lấy chữ ký sẽ được ghi nhận vào đơn cùng chịu liên đới trách nhiệm với BQT nhiệm kì 2023 - 2026
 
