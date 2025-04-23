@@ -173,6 +173,7 @@ Trước hết, phải kiểm tra toàn bộ các công việc BQT 2023-2026 đ�
 
 Chỉ khi cư dân biết được quy trình không đúng luật chỗ nào thì mới có phương án thay đổi. Không thể đưa thuốc khi không biết bệnh.
 
+# NỘI DUNG KHÁC 
 ## Trong nội dung "THE VISTA - THƯ PHẢN HỒI CƯ DÂN" có đề cập đến BQT đã công khai báo cáo audit năm 2024 và sẽ công khai báo cáo kiểm toán năm 2025 trong HNNCC 2025 . Như vậy đã dủ chưa?
 
 1. Báo cáo audit phải dựa trên nguyên tắc hoạt động kiểm toán độc lập. Việc BQT vừa là người giải chi quỹ, vừa là người yêu cầu thuê đơn vị kiểm toán và quyết định nội dung kiểm toán không phải là các hành vi độc lập
@@ -180,3 +181,9 @@ Chỉ khi cư dân biết được quy trình không đúng luật chỗ nào th
 3. Đơn vị kiểm toán hiện tại không hề qua công khai chào thầu. Như đã trao đổi trong nhóm cư dân The Vista An Phú , BQT tự sửa trách nhiệm mời thầu kiểm toán thành quyết định công ty kiểm toán
 4. Hiện trách nhiệm của kiểm toán ghi trên báo cáo chỉ thể hiện snapshot thời gian gian bắt đầu và kết thúc của quỹ , không kiểm tra tình hoạt động của quỹ có đúng không pháp luật và quy chế không
 5. Việc thu chi và hoạt động của quỹ phải dựa trên việc công khai , minh bạch ( Luật nhà ở 2023, Thông tư 05/2024) nên không thể nói đợi đến HNNCC mới cung cấp thông tin. Cư dân có thể xem thêm một số đơn kiến nghị và làm rõ từ chung cư khác, khi có thắc mắc về quỹ chính quyền chức năng đều yêu cầu cung cấp tài liệu liên quan và làm rõ trên nguyên tắc minh bạch thông tin chứ không bảo cư dân đợi đến HNNCC mới báo [LINK](https://cand.com.vn/Ban-doc-cand/nhieu-cu-dan-chung-cu-vip-buc-xuc-sau-nhung-hop-dong-mua-sam-tien-ty-i743960/) 
+
+## Cư dân muốn ký đơn và tìm thông tin nhưng không thấy thông tin trên các khu vực public 
+Vào ngày 23/4/2025 đã có email tới BQL với nội dung Thông báo các hoạt động lấy chữ ký cư dân để gửi lên chính quyền tại The Vista An Phú
+Các tài liệu sẽ được đặt ở các khu vực có camera an ninh. Bất kì hành vi phá hoại và gây cản chở công tác lấy chữ ký sẽ được ghi nhận vào đơn cùng chịu liên đới trách nhiệm với BQT nhiệm kì 2023 - 2026
+
+<img width="673" alt="image" src="https://github.com/user-attachments/assets/791711ec-607b-4c01-a6b9-70cd739fffd1" />
