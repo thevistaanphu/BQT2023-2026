@@ -149,13 +149,15 @@ Xin khẳng định đơn này HOÀN TOÀN KHÔNG LIÊN QUAN tới việc yêu c
 .
 ➡️ Vấn đề cốt lõi của đơn là việc thiếu minh bạch và thiếu đồng thuận cư dân,  hành vi sai pháp luật chứ không phải “tăng nhẹ hợp lý”.
 
-2. BQT hoàn toàn có quyền đề xuất mức phí hợp lý , kèm theo có nghĩa vụ công khai kế hoạch tài chính, cách phân bổ chi phí, phân vùng nghĩa vụ đóng góp của các khu vực sử dụng hỗn hợp, lấy ý kiến cư dân trước khi điều chỉnh như luật quy định. Việc dịch vụ xuống cấp (vệ sinh, cây xanh, bảo vệ…),  thiếu sự cam kết và đánh giá chất lượng, thiếu giải trình tài chính , không cung cấp trách nhiệm đóng góp của các chủ sở hữu là hành động không tuân thủ quy định pháp luật, do vậy cư dân có ý kiến về việc chi phí tăng nhưng không minh bạch và thiếu cam kết về kết quả
+2. BQT hoàn toàn có quyền đề xuất mức phí hợp lý , kèm theo có nghĩa vụ công khai kế hoạch tài chính, cách phân bổ chi phí, phân vùng nghĩa vụ đóng góp của các khu vực sử dụng hỗn hợp, lấy ý kiến cư dân trong HNNCC như luật quy định
 
-3. Không có chuyện miễn thu đậu xe cho toàn bộ cư dân
+➡️Việc dịch vụ xuống cấp (vệ sinh, cây xanh, bảo vệ…), thiếu sự cam kết và đánh giá chất lượng, thiếu giải trình tài chính , không cung cấp trách nhiệm đóng góp của các chủ sở hữu là hành động không tuân thủ quy định pháp luật, do vậy cư dân có ý kiến về việc chi phí tăng nhưng không minh bạch và thiếu cam kết về kết quả
+
+5. Không có chuyện miễn thu đậu xe cho toàn bộ cư dân
 Thực tế, phần lớn các cư dân đều đã trả phí đậu xe và phí này được cộng vào trong chi phí quản lý đóng hằng tháng.
 Trước đây khi kêu gọi biểu quyết thu phí đậu xe các cư dân đã yêu cầu nếu thu phí đậu xe thì cũng phải tách bạch phần phí vận hành và bảo trì bãi xe, và do vậy, phải giảm phí đóng hằng tháng xuống . Việc vận hành/bảo trì phải được cân đối trên nguyên tắc sử dụng từ nguồn thu này. 
 
-Trong năm 2024 BQT tự quyết định không tách bạch và cân đối tài chính cho nguồn thu này nên không thể nói cư dân đang được "miễn phí"
+➡️Trong năm 2024 BQT tự quyết định không tách bạch và cân đối tài chính cho nguồn thu này sau khi được cư dân góp ý, nên không thể nói cư dân đang được "miễn phí". 
 # QUỸ BẢO TRÌ
 ## Ảnh hưởng của việc sử dụng sai quỹ Bảo Trì như thế nào? ##
 
